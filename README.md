@@ -32,6 +32,6 @@
 <div align="center"><a href="https://git.io/hzhen"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
   <h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
     
-<div align=center><h2>本站网址：https://git.io/hzhen </h2></div>
+<div align=center><h3>本站网址：https://git.io/hzhen </h3></div>
 
 <div align="center"><a href="https://is.gd/1o3ZD2"><img src="https://github.com/ofn1/Victoria/blob/master/hzhenqrcode.jpg" title="分享本平台"></img></a>
