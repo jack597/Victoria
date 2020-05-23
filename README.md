@@ -30,3 +30,8 @@
 [环门（电脑版038)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.1/oGate.zip)
 
 <div align="center"><a href="https://git.io/hzhen"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
+  <h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
+    
+<div align=center><h2>本站网址：https://git.io/hzhen </h2></div>
+
+<div align="center"><a href="https://is.gd/1o3ZD2"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/hzhenqrcode.jpg" width=640></a>
