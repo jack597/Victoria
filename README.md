@@ -34,4 +34,4 @@
     
 <div align=center><h2>本站网址：https://git.io/hzhen </h2></div>
 
-<div align="center"><a href="https://is.gd/1o3ZD2"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/hzhenqrcode1.jpg" width=640></a>
+<div align="center"><a href="https://is.gd/1o3ZD2"><img src="https://github.com/ofn1/Victoria/blob/master/hzhenqrcode.jpg" title="分享本平台"></img></a>
