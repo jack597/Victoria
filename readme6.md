@@ -21,7 +21,7 @@
 
 [无界浏览（电脑版19.02)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.3/u1902.zip)
 
-[自由门（安卓版4.0)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.3/fgma40.apk)
+[自由门（安卓版4.2)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.3/fgma42.apk)
 
 [自由门（电脑版7.80)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.3/fg780p.zip)
 
