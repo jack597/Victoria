@@ -1,10 +1,10 @@
-<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5ec90fa3111713e4133"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/lh_nq1.jpg" width=640></a>
-<div align=center><h2>请收藏本站网址：https://git.io/zszff </h2></div>
+<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5ec90fa3111713e4133"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/lh_nq1.jpg" width=640></a>
+<div align=center><h4>请收藏本站网址：https://github.com/ofn1/Victoria/edit/master/readme4.md </h4></div>
 
 
-<div align=center><h3><b><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5ec90fa3111713e4133">● 滙真网入口1 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5ec90fa3111713e4133">● 滙真网入口1 ● </a></b></h3></div>
   
-<div align=center><h3><b><a href="https://dw88.github.io?p=5ec90fa3111713e4133">● 滙真网入口2 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://vk580.github.io?p=5ec90fa3111713e4133">● 滙真网入口2 ● </a></b></h3></div>
 
 <div align=center><h3><b><a href="https://github.com/gofanben/gm/blob/master/swsp.md">● 友好链接入口1 ● </a></b></h3></div>
 
@@ -29,10 +29,10 @@
 
 [环门（电脑版038)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.3/oGate.zip)
 
-<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5ec90fa3111713e4133"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5ec90fa3111713e4133"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
   
 <h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
     
 <div align="center"><a href="https://git.io/xjjzs"><img src="https://github.com/ofn1/Victoria/blob/master/lh_nq1_ly_qr.jpg" title="分享本平台"></img></a>
 
-<div align=center><h3>本站网址：https://git.io/zszff </h3></div>
+<div align=center><h3>本站网址：https://github.com/ofn1/Victoria/edit/master/readme4.md</h3></div>
