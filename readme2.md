@@ -4,7 +4,7 @@
 
 <div align=center><h3><b><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5ec93aaa5527575d538">● 滙真网入口1 ● </a></b></h3></div>
   
-<div align=center><h3><b><a href="https://dw88.github.io?p=5ec93aaa5527575d538">● 滙真网入口2 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://hm597.github.io?p=5ec93aaa5527575d538">● 滙真网入口2 ● </a></b></h3></div>
 
 <div align=center><h3><b><a href="https://github.com/gofanben/gm/blob/master/swsp.md">● 友好链接入口1 ● </a></b></h3></div>
 
