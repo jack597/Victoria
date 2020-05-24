@@ -6,7 +6,7 @@
 
 <div align=center><h3><b><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5eca63cd9596949e930">● 滙真网入口1 ● </a></b></h3></div>
   
-<div align=center><h3><b><a href="https://hm597.github.io?p=5ec93ef567689e95932">● 滙真网入口2 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://hm597.github.io?p=5eca63cd9596949e930">● 滙真网入口2 ● </a></b></h3></div>
 
 <div align=center><h3><b><a href="https://github.com/gofanben/gm/blob/master/swsp.md">● 友好链接入口1 ● </a></b></h3></div>
 
