@@ -12,7 +12,7 @@
 <div align=center><h3><b><a href="https://github.com/qqc2352/www/blob/master/README.md">● 友好链接入口2 ● </a></b></h3></div>
 
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5ec90fa3111713e4133"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
-固定长网址：https://github.com/ofn1/Victoria/blob/master/readme4.md
+
 <h2><p><strong>免费翻墙软件下载</strong></p></h2>
 安全免费，绿色智能，帮您破除网络封禁，一键上外网。<br>
 
