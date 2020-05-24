@@ -35,4 +35,4 @@
     
 <div align="center"><a href="https://s3.ap-northeast-2.amazonaws.com/gvzswkwq/index.html"><img src="https://github.com/ofn1/Victoria/blob/master/lhnq2.jpg" title="分享本平台"></img></a>
 
-<div align=center><h3>本站网址：https://cutt.ly/hfzgc </h3></div>
+<div align=center><h3>本站网址：https://git.io/xjjzs </h3></div>
