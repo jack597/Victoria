@@ -37,7 +37,3 @@
 <div align="center"><a href="https://git.io/xjjzs"><img src="https://github.com/ofn1/Victoria/blob/master/lh_nq2_lh_qr.jpg" title="分享本平台"></img></a>
 
 <div align=center><h3>本站网址：https://github.com/ofn1/Victoria/blob/master/readme5.md</h3></div>
-    
-<div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/lh_nq2_lh_qr.1.jpg" title="分享本平台"></img></a>
-
-<div align=center><h3>本站网址：https://github.com/ofn1/Victoria/blob/master/readme5.md</h3></div>
