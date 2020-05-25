@@ -1,6 +1,3 @@
-
-
-
 <div align="center"><a href="https://s3.ap-northeast-2.amazonaws.com/gvzswkwq/index.html?p=5eca780227525624530"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/hzhen5.jpg" width=640></a>
 <div align=center><h4>请收藏本站网址：https://github.com/ofn1/Victoria/blob/master/readme10.md</h4></div>
 
