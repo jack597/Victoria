@@ -4,7 +4,7 @@
 
 <div align=center><h3><b><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5ecb28eb1ee816e1136">● 滙真网入口1 ● </a></b></h3></div>
   
-<div align=center><h3><b><a href="https://kpf45.github.io?p=5eca780227525624530">● 滙真网入口2 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://kpf45.github.io?p=5ecb28eb1ee816e1136">● 滙真网入口2 ● </a></b></h3></div>
 
 <div align=center><h3><b><a href="https://github.com/gofanben/gm/blob/master/swsp.md">● 友好链接入口1 ● </a></b></h3></div>
 
