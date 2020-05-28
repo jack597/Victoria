@@ -1,4 +1,4 @@
-<div align="center"><a href="https://s3.eu-central-1.amazonaws.com/btyzvcva/index.html.html?p=5ecb28eb1ee816e1136"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/hzhen5.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-southeast-2.amazonaws.com/szuntjhtt/index.html?p=5ecb28eb1ee816e1136"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/hzhen5.jpg" width=640></a>
 <div align=center><h4>请收藏本站网址：https://github.com/ofn1/Victoria/blob/master/readme13.md</h4></div>
 
 
@@ -10,7 +10,7 @@
 
 <div align=center><h3><b><a href="https://github.com/qqc2352/www/blob/master/README.md">● 友好链接入口2 ● </a></b></h3></div>
 
-<div align="center"><a href="https://s3.ap-southeast-2.amazonaws.com/szuntjhtt/index.html?p=5ecb28eb1ee816e1136"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-southeast-2.amazonaws.com/szuntjhtt/index.html"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
 
 <h2><p><strong>免费翻墙软件下载</strong></p></h2>
 安全免费，绿色智能，帮您破除网络封禁，一键上外网。<br>
