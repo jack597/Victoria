@@ -1,8 +1,8 @@
-<div align="center"><a href="https://s3.ap-southeast-2.amazonaws.com/szuntjhtt/index.html?p=5ecb6120a2d4d7a7d39"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/hzhen5.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/nxtx43c6/index.html?p=5ecb6120a2d4d7a7d39"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/hzhen5.jpg" width=640></a>
 <div align=center><h4>请收藏本站网址：https://github.com/ofn1/Victoria/blob/master/readme14.md</h4></div>
 
 
-<div align=center><h3><b><a href="https://s3.ap-southeast-2.amazonaws.com/szuntjhtt/index.html?p=5ecb6120a2d4d7a7d39">● 滙真网入口1 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://s3.ap-southeast-1.amazonaws.com/nxtx43c6/index.html?p=5ecb6120a2d4d7a7d39">● 滙真网入口1 ● </a></b></h3></div>
   
 <div align=center><h3><b><a href="https://ofn1.github.io?p=5ecb6120a2d4d7a7d39">● 滙真网入口2 ● </a></b></h3></div>
 
@@ -29,7 +29,7 @@
 
 [环门（电脑版038)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.5/oGate.zip)
 
-<div align="center"><a href="https://s3.ap-southeast-2.amazonaws.com/szuntjhtt/index.html?p=5ecb6120a2d4d7a7d39"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/nxtx43c6/index.html?p=5ecb6120a2d4d7a7d39"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
   
 <h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
   
