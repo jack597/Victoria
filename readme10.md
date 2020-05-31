@@ -34,6 +34,6 @@
   
 <h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
   
-<div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/readme10.md"><img src="https://github.com/ofn1/Victoria/blob/master/qy_qr1.jpg" title="分享本平台"></img></a>
+<div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/readme10.md"><img src="https://github.com/ofn1/Victoria/blob/master/readme10_qr.jpg" title="分享本平台"></img></a>
 
 <div align=center><h3>本站网址：https://github.com/ofn1/Victoria/blob/master/readme10.md</h3></div>
