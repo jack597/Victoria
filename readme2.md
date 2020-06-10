@@ -1,5 +1,5 @@
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5ec93aaa5527575d538"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/lh_nq1.jpg" width=640></a>
-<div align=center><h2>请收藏本站网址：https://git.io/xjjzs </h2></div>
+<div align=center><h2>请收藏本站网址：https://github.com/ofn1/Victoria/blob/master/readme2.md </h2></div>
 
 
 <div align=center><h3><b><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5ec93aaa5527575d538">● 滙真网入口1 ● </a></b></h3></div>
@@ -35,4 +35,4 @@
     
 <div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/readme2.md"><img src="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.1/readme2_qr.jpg" title="分享本平台"></img></a>
 
-<div align=center><h3>本站网址：https://git.io/xjjzs </h3></div>
+<div align=center><h3>本站网址：https://github.com/ofn1/Victoria/blob/master/readme2.md </h3></div>
