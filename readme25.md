@@ -1,5 +1,5 @@
-<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5ee0f72e5e585455539"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/hzhen3.jpg" width=640></a>
-<div align=center><h2>请收藏本站网址：https://git.io/hzhen </h2></div>
+<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5ee0f72e5e585455539"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/hzhen5.jpg" width=640" width=640></a>
+<div align=center><h2>请收藏本站网址：https://github.com/ofn1/Victoria/blob/master/readme25.md</h2></div>
 
 
 <div align=center><h3><b><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5ee0f72e5e585455539">● 滙真网入口1 ● </a></b></h3></div>
