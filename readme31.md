@@ -32,6 +32,6 @@
 <div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5eee2650a1d6d7a7d39"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
   <h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
     
-<div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/readme31.md"><img src="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.3/readme29_qr.jpg" title="分享本平台"></img></a>
+<div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/readme31.md"><img src="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.4/readme31_qr.jpg" title="分享本平台"></img></a>
 
 <div align=center><h3>本站网址：https://github.com/ofn1/Victoria/blob/master/readme31.md</h3></div>
