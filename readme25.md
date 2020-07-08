@@ -30,7 +30,6 @@
 [环门（电脑版038)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.5/oGate.zip)
 
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5ee0f72e5e585455539"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
-<hr>
 <h1><p><div><strong>全球退党中心倡议：解体中共 远离瘟疫</strong></p></h1>
 <p><strong><div style=<p align="left">
 全球退党中心近日发起了一项征签倡议活动：终结共产党。“全球退党中心”表示，这能得到神的眷顾和救度，远离瘟疫。</p>
@@ -69,7 +68,6 @@
 <p>请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/u7Hmle" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </p>
 </div>
-<hr>
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5ee0f72e5e585455539"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
   <h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
     
