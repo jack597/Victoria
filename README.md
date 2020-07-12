@@ -30,7 +30,7 @@
 [环门（电脑版038)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.5/oGate.zip)
 
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5ece7bf65e585455531"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
-  <h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
+ 
     
  <h1><p><div><strong>全球退党中心倡议：解体中共 远离瘟疫</strong></p></h1>
 <p><strong><div style=<p align="left">
@@ -72,6 +72,7 @@
 </div>
     
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5ece7bf65e585455531"><img src="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.1/readme_qr.jpg" title="分享本平台"></img></a>
+<h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
 
 <div align=center><h3>本站网址：https://github.com/ofn1/Victoria/blob/master/README.md</h3></div>
 <div>
