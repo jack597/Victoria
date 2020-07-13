@@ -9,7 +9,7 @@
 
 <div align=center><h3><b><a href="https://github.com/gofanben/gm/blob/master/swsp.md">● 友好链接入口1 ● </a></b></h3></div>
 
-<div align=center><h3><b><a href="https://github.com/qqc2352/www/blob/master/README.md">● 友好链接入口2 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://github.com/ofatuf344/www/blob/master/README.md">● 友好链接入口2 ● </a></b></h3></div>
 
 <div align="center"><a href="https://s3.ap-northeast-2.amazonaws.com/gvzswkwq/index.html?p=5edef0bcdea7d6d1d51"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
 
