@@ -1,4 +1,4 @@
-<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f1ee6c716e21611139"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/hzhen3.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f1ee6c716e21611139"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/hzhen5.jpg" width=640></a>
 <div align=center><h2>请收藏本站网址：https://git.io/hzhen </h2></div>
 
 
@@ -67,11 +67,11 @@
 <p><strong>六、觉醒和希望</strong></p>
 <p>中国人正在从中共的谎言中苏醒。自2004年大纪元发表《九评共产党》至今（至7月），超过3.6亿中国人声明退出中共党、团、队组织。这一数字每一天在增长。</p>
 <p>结束中共：终结共产党！现在是所有人一起发声的时候了。加入“终结共产党”的行列，今天就签署请愿书！没有中共，我们将共同迎来一个美好的世界！</p>
-<p>请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://hm597.github.io?p=5eea51fd9796939e933&u=santui" rel="nofollow">声明退出共产党、共青团、少先队组织（点击進入）</a>
+<p>请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://hm597.github.io?p=5f1ee6c716e21611139&u=santui" rel="nofollow">声明退出共产党、共青团、少先队组织（点击進入）</a>
 </p>
 </div>
     
-<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f1ee6c716e21611139"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f1ee6c716e21611139&u=santui"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
 <h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
 
 <div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/README.md"><img src="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.2/readme_qr.jpg" title="分享本平台"></img></a>
