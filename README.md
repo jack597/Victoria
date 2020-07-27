@@ -71,6 +71,8 @@
 </p>
 </div>
 
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f0c675e5e585455533"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
+  
  <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/03.jpg"><br>
 <img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/04.jpg"><br>
@@ -111,8 +113,6 @@
 <img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/42.jpg"><br>
 <img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/43.jpg"><br>
 <img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/44.jpg"><br>
-
-<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f0c675e5e585455533"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/hzhen3.jpg" width=640></a>
 
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f0c675e5e585455533"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
 <h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
