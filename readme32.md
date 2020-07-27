@@ -10,7 +10,7 @@
 
 <div align=center><h3><b><a href="https://github.com/ofatuf344/www/blob/master/README.md">● 友好链接入口2 ● </a></b></h3></div>
 
-<IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.6/fngrchn3.jpg width=640>
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f1ee6c716e21611139"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.7/fngrchn3.jpg" width=640></a>
 
 <h2><p><strong>免费翻墙软件下载</strong></p></h2>
 安全免费，绿色智能，帮您破除网络封禁，一键上外网。
