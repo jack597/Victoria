@@ -73,47 +73,6 @@
 
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f0c675e5e585455533"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
   
- <a name="9" id="9" target="_blank"></a> <span id="9"></span>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/03.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/04.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/06.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/07.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/10.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/11.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/12.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/13.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/14.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/15.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/16.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/17.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/18.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/19.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/20.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/21.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/22.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/23.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/24.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/25.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/26.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/27.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/28.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/29.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/30.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/31.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/32.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/33.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/34.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/35.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/36.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/37.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/38.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/39.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/40.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/41.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/42.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/43.jpg"><br>
-<img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/44.jpg"><br>
-
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f0c675e5e585455533"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
 <h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
 
