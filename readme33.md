@@ -1,4 +1,4 @@
-<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f1f880a22285652533"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.6/hzhen5.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f1f880a22285652533"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640></a>
 <div align=center><h2>请收藏本站网址：https://github.com/ofn1/Victoria/blob/master/readme33.md </h2></div>
 
 
@@ -10,7 +10,7 @@
 
 <div align=center><h3><b><a href="https://github.com/ofatuf344/www/blob/master/README.md">● 友好链接入口2 ● </a></b></h3></div>
 
-<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f1f880a22285652533"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.7/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f1f880a22285652533"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <h2><p><strong>免费翻墙软件下载</strong></p></h2>
 安全免费，绿色智能，帮您破除网络封禁，一键上外网。
@@ -30,11 +30,11 @@
 
 [环门（电脑版038)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.9/oGate.zip)
 
-<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f1f880a22285652533"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.6/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f1f880a22285652533"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
  
     
  <h1><p><div><strong>全球退党中心倡议：解体中共 远离瘟疫</strong></p></h1>
- <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f1f880a22285652533"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.6/certificate.jpg" width=640></a>
+ <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f1f880a22285652533"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/certificate.jpg" width=640></a>
 <p><strong><div style=<p align="left">
 全球退党中心近日发起了一项征签倡议活动：终结共产党。“全球退党中心”表示，这能得到神的眷顾和救度，远离瘟疫。</p>
 <p>全球退党中心在其名为“终结共产党”的征签网站上写道：“如果中共不撒谎，这场（病毒）大流行本可避免。”“现在是所有人拒绝中共恶魔，终结中共的时候了。”</p>
@@ -73,7 +73,7 @@
 </p>
 </div>
     
-<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f1f880a22285652533&u=santui"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.6/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f1f880a22285652533&u=santui"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 <h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
 
 <div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/readme33.md"><img src="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/readme33_qr.jpg" title="分享本平台"></img></a>
