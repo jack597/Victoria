@@ -1,6 +1,5 @@
 
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5ec90fa3111713e4133"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640></a>
-<div align=center><h4>请收藏本站网址：https://github.com/ofn1/Victoria/blob/master/readme5.md</h4></div>
 <h3><strong><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5ec90fa3111713e4133&u=santui" rel="nofollow">点击这里: 退出中共党、团、队组织！ 走向新生的第一步！</a></strong></h3><br>
 
 <div align=center><h3><b><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5ec90fa3111713e4133">● 滙真网入口1 ● </a></b></h3></div>
