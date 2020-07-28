@@ -29,7 +29,7 @@
 
 [环门（电脑版038)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.9/oGate.zip)
 
-<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5ecb28eb1ee816e1136"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.6/certificate.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5ecb28eb1ee816e1136"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.6/fngrchn3.jpg" width=640></a>
 
 <h1><p><div><strong>全球退党中心倡议：解体中共 远离瘟疫</strong></p></h1>
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5ecb28eb1ee816e1136"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.6/certificate.jpg" width=640></a>
