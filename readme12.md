@@ -31,7 +31,7 @@
 
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5ecb28eb1ee816e1136"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
-<h1><p><div><strong>全球退党中心倡议：解体中共 远离瘟疫</strong></p></h1>
+<h2><p><div><strong>全球退党中心倡议：解体中共 远离瘟疫</strong></p></h2>
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5ecb28eb1ee816e1136"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/certificate.jpg" width=640></a>
 <p><strong><div style=<p align="left">
 全球退党中心近日发起了一项征签倡议活动：终结共产党。“全球退党中心”表示，这能得到神的眷顾和救度，远离瘟疫。</p>
