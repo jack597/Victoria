@@ -70,7 +70,7 @@
 <p>请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5ee0f72e5e585455539&u=santui" rel="nofollow">声明退出共产党、共青团、少先队组织（点击進入）</a>
 </p>
 </div>
-<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5ee0f72e5e585455539"><IMG SRC="SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5ee0f72e5e585455539"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
   <h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
     
 <div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/readme25.md"><img src="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/readme25_qr.jpg" title="分享本平台"></img></a>
