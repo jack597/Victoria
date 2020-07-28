@@ -1,5 +1,5 @@
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5ee0f72e5e585455539"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640" width=640></a>
-<h1><strong><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5ee0f72e5e585455539&u=santui" rel="nofollow">退出中共党、团、队组织走向新生的第一步！点击这里</a></strong></h1><br>
+<h2><strong><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5ee0f72e5e585455539&u=santui" rel="nofollow">退出中共党、团、队组织，走向新生的第一步！点击这里</a></strong></h2><br>
 
 <div align=center><h3><b><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5ee0f72e5e585455539">● 滙真网入口1 ● </a></b></h3></div>
   
