@@ -71,7 +71,7 @@
 </p>
 </div>
 
-<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5ecb28eb1ee816e1136"><IMG SRC=""https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5ecb28eb1ee816e1136"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
   
