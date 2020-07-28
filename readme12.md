@@ -1,5 +1,5 @@
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5ecb28eb1ee816e1136"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640></a>
-<h2><strong><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5ecb28eb1ee816e1136&u=santui" rel="nofollow">退出中共党、团、队组织，走向新生的第一步！点击这里！</a></strong></h2><br>
+<h3><strong><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5ecb28eb1ee816e1136&u=santui" rel="nofollow">退出中共党、团、队组织，走向新生的第一步！点击这里！</a></strong></h3><br>
 
 
 <div align=center><h3><b><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5ecb28eb1ee816e1136">● 滙真网入口1 ● </a></b></h3></div>
@@ -77,5 +77,5 @@
   
 <div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/readme12.md"><img src="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/readme12_qr.jpg" title="分享本平台"></img></a>
 
-<div align=center><h3>请收藏本站网址：https://github.com/ofn1/Victoria/blob/master/readme12.md</h3></div>
+<div align=center><h4>请收藏本站网址：https://github.com/ofn1/Victoria/blob/master/readme12.md</h4></div>
 
