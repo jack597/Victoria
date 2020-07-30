@@ -13,7 +13,8 @@
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f0c675e5e585455533"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
 
 <h2><p><strong>免费翻墙软件下载</strong></p></h2>
-安全免费，绿色智能，帮您破除网络封禁，一键上外网。<br>
+
+<strong>安全免费，绿色智能，帮您破除网络封禁，一键上外网。</strong><br>
 
 [无界浏览（安卓版4.8)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.5/um.apk)
 
@@ -76,6 +77,6 @@
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f0c675e5e585455533"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
 <h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
 
-<div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/README.md"><img src="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.2/readme_qr.jpg" title="分享本平台"></img></a>
+<div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/README.md"><img src="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.9/README_qr.jpg" title="分享本平台"></img></a>
 <div align=center><h3>本站网址：https://github.com/ofn1/Victoria/blob/master/README.md</h3></div>
 <div>
