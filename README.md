@@ -35,9 +35,8 @@ href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f0c675e5e58
 
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f0c675e5e585455533"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
  
-<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=55f0c675e5e585455533"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
-    
  <h1><p><div><strong>全球退党中心倡议：解体中共 远离瘟疫</strong></p></h1>
+ <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5eca63cd9596949e930"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/certificate.jpg" width=640></a>
 <p><strong><div style=<p align="left">
 全球退党中心近日发起了一项征签倡议活动：终结共产党。“全球退党中心”表示，这能得到神的眷顾和救度，远离瘟疫。</p>
 <p>全球退党中心在其名为“终结共产党”的征签网站上写道：“如果中共不撒谎，这场（病毒）大流行本可避免。”“现在是所有人拒绝中共恶魔，终结中共的时候了。”</p>
