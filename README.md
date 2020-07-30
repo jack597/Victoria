@@ -1,8 +1,7 @@
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f0c675e5e585455533"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/hzhen3.jpg" width=640></a>
   
-href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f0c675e5e585455533&u=santui" rel="nofollow">点击这里: 退出中共党、团、队组织！ 走向新生的第一步！</a></strong></h3><br>
+<h3><strong><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f0c675e5e585455533&u=santui" rel="nofollow">点击这里: 退出中共党、团、队组织！ 走向新生的第一步！</a></strong></h3><br>
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f0c675e5e585455533"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
-
 
 
 <div align=center><h3><b><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f0c675e5e585455533">● 滙真网入口1 ● </a></b></h3></div>
@@ -19,19 +18,19 @@ href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f0c675e5e58
 
 <strong>安全免费，绿色智能，帮您破除网络封禁，一键上外网。</strong><br>
 
-[无界浏览（安卓版4.8)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.5/um.apk)
+[无界浏览（安卓版4.8)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.9/um.apk)
 
-[无界浏览（电脑版19.02)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.5/u1902.zip)
+[无界浏览（电脑版19.02)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.9/u1902.zip)
 
-[自由门（安卓版4.2)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.5/fgma42.apk)
+[自由门（安卓版4.2)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.9/fgma42.apk)
 
-[自由门（电脑版7.87)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.8/fg787p.zip)
+[自由门（电脑版7.88)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.9/fg788p.zip)
 
-[神州明见（安卓版4.2)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.5/SzzdOgate.apk)
+[神州明见（安卓版4.2)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.9/SzzdOgate.apk)
 
-[环门（安卓版034)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.5/oGatea.apk)
+[环门（安卓版039)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.9/oGatea039.apk)
 
-[环门（电脑版038)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.5/oGate.zip)
+[环门（电脑版038)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.9/oGate.zip)
 
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f0c675e5e585455533"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
  
