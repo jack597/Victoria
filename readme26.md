@@ -1,6 +1,6 @@
-<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5eea51fd9796939e933"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/hzhen5.jpg" width=640" width=640></a>
-<div align=center><h2>请收藏本站网址：https://github.com/ofn1/Victoria/blob/master/readme26.md</h2></div>
-
+<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5eea51fd9796939e933"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640></a>
+<h3><strong><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5eea51fd9796939e933&u=santui" rel="nofollow">点击这里: 退出中共党、团、队组织！ 走向新生的第一步！</a></strong></h3><br>
+<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5eea51fd9796939e933"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <div align=center><h3><b><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5eea51fd9796939e933">● 滙真网入口1 ● </a></b></h3></div>
   
@@ -10,35 +10,37 @@
 
 <div align=center><h3><b><a href="https://github.com/ofatuf344/www/blob/master/README.md">● 友好链接入口2 ● </a></b></h3></div>
 
-<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5eea51fd9796939e933"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5eea51fd9796939e933"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <h2><p><strong>免费翻墙软件下载</strong></p></h2>
-安全免费，绿色智能，帮您破除网络封禁，一键上外网。<br>
 
-[无界浏览（安卓版4.8)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.5/um.apk)
+<strong>安全免费，绿色智能，帮您破除网络封禁，一键上外网。</strong><br>
 
-[无界浏览（电脑版19.02)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.5/u1902.zip)
+[无界浏览（安卓版4.8)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.9/um.apk)
 
-[自由门（安卓版4.2)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.5/fgma42.apk)
+[无界浏览（电脑版19.02)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.9/u1902.zip)
 
-[自由门（电脑版7.87)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.8/fg787p.zip)
+[自由门（安卓版4.2)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.9/fgma42.apk)
 
-[神州明见（安卓版4.2)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.5/SzzdOgate.apk)
+[自由门（电脑版7.88)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.9/fg788p.zip)
 
-[环门（安卓版034)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.5/oGatea.apk)
+[神州明见（安卓版4.2)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.9/SzzdOgate.apk)
 
-[环门（电脑版038)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.5/oGate.zip)
+[环门（安卓版039)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.9/oGatea039.apk)
 
-<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5eea51fd9796939e933"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
- 
-<h1><p><div><strong>全球退党中心倡议：解体中共 远离瘟疫</strong></p></h1>
+[环门（电脑版038)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.9/oGate.zip)
+
+<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5eea51fd9796939e933"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+
+<h2><p><div><strong>全球退党中心倡议：解体中共 远离瘟疫</strong></p></h2>
+<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5eea51fd9796939e933"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/certificate.jpg" width=640></a>
 <p><strong><div style=<p align="left">
 全球退党中心近日发起了一项征签倡议活动：终结共产党。“全球退党中心”表示，这能得到神的眷顾和救度，远离瘟疫。</p>
 <p>全球退党中心在其名为“终结共产党”的征签网站上写道：“如果中共不撒谎，这场（病毒）大流行本可避免。”“现在是所有人拒绝中共恶魔，终结中共的时候了。”</p>
 <p>6月26日，全球退党中心主席易蓉向大纪元记者介绍了这次征签倡议活动的目的，“共产主义在全球蔓延，西方世界被中共渗透。人们对这个历史上前所未有的邪恶沉默、无视了太久，招来了毁灭性的灾难。”</p>
 <p>“我们要唤起人们心中的正义和良知，让他们认清中共的邪恶，同时，也给他们作出选择的机会。”</p>
 <p>“全球各个角落的人们从内心发出终结共产党的呼声，就能得到神的眷顾和救度，远离这场瘟疫。”</p>
-<p>易蓉说，加入过中共党、团、队的华人，需要在退党网站或通过三退（退党、退团、退队，简称“三退”）义工<a href="https://is.gd/aAkS6H" rel="nofollow">声明退出中共党、团、队组织（点击進入）</a>，脱离中共魔掌；对西方人来说，他们也需要了解真相，了解中共恶党的邪恶本质，才能远离危险。</p>
+<p>易蓉说，加入过中共党、团、队的华人，需要在退党网站或通过三退（退党、退团、退队，简称“三退”）义工<a href="https://anna795.github.io?p=5eea51fd9796939e933&u=santui" rel="nofollow">声明退出中共党、团、队组织（点击進入）</a>，脱离中共魔掌；对西方人来说，他们也需要了解真相，了解中共恶党的邪恶本质，才能远离危险。</p>
 <p>易蓉介绍，征签活动目前仅开始几天，就已收到大量来自各方的正义支持以及合作意向。“我们感受到，世界在期盼著结束中共的时刻。”</p>
 <p>全球退党中心在其“终结共产党”的征签网站上了列举了中共的主要罪行，包括隐瞒中共病毒（武汉肺炎）疫情，导致疫情全球蔓延；毁坏香港自治；中共对内迫害民众，对外渗透，实施全球扩张等。</p>
 <p>其列举的中共主要罪行内容如下（略有删减和文字修改）：</p>
@@ -64,15 +66,17 @@
 <p>一胎化。中共控制了中国人生活的方方面面，包括人口。中共的计划生育政策“阻止了四亿婴儿的出生”。换句话说，这些婴儿在出生之前就被杀死了。</p>
 <p>1989年天安门广场大屠杀。</p>
 <p><strong>六、觉醒和希望</strong></p>
-<p>中国人正在从中共的谎言中苏醒。自2004年大纪元发表《九评共产党》至今（至7月），超过3.59亿中国人声明退出中共党、团、队组织。这一数字每一天在增长。</p>
+<p>中国人正在从中共的谎言中苏醒。自2004年大纪元发表《九评共产党》至今（至7月），超过3.6亿中国人声明退出中共党、团、队组织。这一数字每一天在增长。</p>
 <p>结束中共：终结共产党！现在是所有人一起发声的时候了。加入“终结共产党”的行列，今天就签署请愿书！没有中共，我们将共同迎来一个美好的世界！</p>
-<p>请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/aAkS6H" rel="nofollow">声明退出共产党、共青团、少先队组织（点击進入）</a>
+<p>请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5eea51fd9796939e933&u=santui" rel="nofollow">声明退出共产党、共青团、少先队组织（点击進入）</a>
 </p>
-</div> 
- 
- <div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5eea51fd9796939e933"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a> 
- <h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
-    
-<div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/readme26.md"><img src="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.3/readme26_qr.jpg" title="分享本平台"></img></a>
+</div>
 
-<div align=center><h3>本站网址：https://github.com/ofn1/Victoria/blob/master/readme26.md</h3></div>
+<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5eea51fd9796939e933"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
+  
+<div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/readme26.md"><img src="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/readme26_qr.jpg" title="分享本平台"></img></a>
+
+<div align=center><h4>请收藏本站网址：https://github.com/ofn1/Victoria/blob/master/readme26.md</h4></div>
+
