@@ -117,7 +117,7 @@
 <p><strong>六、觉醒和希望</strong></p>
 <p>中国人正在从中共的谎言中苏醒。自2004年大纪元发表《九评共产党》至今（至7月），超过3.6亿中国人声明退出中共党、团、队组织。这一数字每一天在增长。</p>
 <p>结束中共：终结共产党！现在是所有人一起发声的时候了。加入“终结共产党”的行列，今天就签署请愿书！没有中共，我们将共同迎来一个美好的世界！</p>
-<p><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5ec93aaa5527575d538&u=santui" rel="nofollow">声明退出共产党、共青团、少先队组织（点击進入）</a>
+<p><div align=center><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5ec93aaa5527575d538&u=santui" rel="nofollow">声明退出共产党、共青团、少先队组织（点击進入）</a>
 </p>
 </div>
 
