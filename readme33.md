@@ -33,7 +33,7 @@
 
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f1f880a22285652533"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
  
- <h1><p><div><strong>探寻真相</strong></p></h1> 
+ <h2><p><div><strong>探寻真相</strong></p></h2> 
  
 <p><details><summary><a target="_blank" href="https://github.com/biqjtb3721/ntdtv/blob/master/gb/prog1647_1.md#1">共产党百年真相</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf1176114.md#1">破坏文化</a></p>
