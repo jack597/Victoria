@@ -97,7 +97,7 @@
 <p>以美国为首的自由世界，近期针对中共的全面打击，正迅速有序的展开。美国是制裁中共官员，不是中国人民，两者不能混淆。《魔鬼在统治着我们的世界》一书（第十八章）指出：“中共不是正常意义上的政党或政权，它不代表中国人民，而是共产邪灵在人间的代表。与中共交往就是与魔共舞，与中共友善就是在姑息魔鬼、助恶为虐，把人类推向绝路。反过来讲，对中共的反击就是一场正与邪的较量，这不是单纯的国家利益之争，更是为了人类的未来”。</p>
 <p>在中共崩解覆亡之前，眼下正是弃暗投明的好机会，避免成为中共的陪葬品。超过3.6亿中国民众选择退出中国共产党、共青团、少先队，就表明彻底与中共切割，不再给中共当替罪羊，这是明智的选择。退党才能保平安，也是走向新生的第一步。</p>
 <p>善恶一念间，却是天堂与地狱的分野。那些还没有退出中共相关组织的人，应该马上清醒过来，与邪恶的红魔划清界线。此时不退党（/团/队），更待何时？机缘稍纵即逝，犹豫不决可能铸下大错，空留难以弥补的遗憾。</p>
-<p><div align=center><h3><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5ee0f72e5e585455539&u=santui" rel="nofollow"声明退出中共党（/团/队）（点击進入）</a></h3>
+<p><div align=center><h3><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5ee0f72e5e585455539&u=santui" rel="nofollow">声明退出中共党（/团/队）（点击進入）</a></h3>
 </p>
 </div>
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5ee0f72e5e585455539"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
