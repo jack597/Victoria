@@ -1,5 +1,6 @@
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f1f880a22285652533"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640></a>
-<div align=center><h2>请收藏本站网址：https://github.com/ofn1/Victoria/blob/master/readme33.md </h2></div>
+<h3><strong><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f1f880a22285652533&u=santui" rel="nofollow">点击这里: 退出中共党、团、队组织！ 走向新生的第一步！</a></strong></h3><br>
+<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f1f880a22285652533"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 
 <div align=center><h3><b><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f1f880a22285652533">● 滙真网入口1 ● </a></b></h3></div>
@@ -32,7 +33,7 @@
 
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f1f880a22285652533"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
  
- <h1><p><div><strong>三退评论精选</strong></p></h1> 
+ <h1><p><div><strong>探寻真相</strong></p></h1> 
  
 <p><details><summary><a target="_blank" href="https://github.com/biqjtb3721/ntdtv/blob/master/gb/prog1647_1.md#1">共产党百年真相</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf1176114.md#1">破坏文化</a></p>
