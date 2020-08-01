@@ -1,5 +1,5 @@
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5ee0f72e5e585455539"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640" width=640></a>
-<h3><strong><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5ee0f72e5e585455539&u=santui" rel="nofollow">点击这里: 退出中共党、团、队组织！ 走向新生的第一步！</a></strong></h3><br>
+<h3><strong><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5ee0f72e5e585455539&u=santui" rel="nofollow">“三退，您退了吗？” 点击这里: 退出中共党（/团/队）</a></strong></h3><br>
  <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5ee0f72e5e585455539"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 <div align=center><h3><b><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5ee0f72e5e585455539">● 滙真网入口1 ● </a></b></h3></div>
   
@@ -30,44 +30,74 @@
 [环门（电脑版038)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.9/oGate.zip)
 
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5ee0f72e5e585455539"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
-  
-<h2><p><div><strong>全球退党中心倡议：解体中共 远离瘟疫</strong></p></h2>
-<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5ee0f72e5e585455539"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/certificate.jpg" width=640></a>
+ 
+ <h2><p><div><strong>探寻真相</strong></p></h2> 
+ 
+<p><details><summary><a target="_blank" href="https://github.com/biqjtb3721/ntdtv/blob/master/gb/prog1647_1.md#1">共产党百年真相</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf1176114.md#1">破坏文化</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf1176115.md#1">窜改历史</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf1176118.md#1">制造贫困</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf1176106.md#1">杀人历史</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf1176107.md#1">党魁画皮</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf1176111.md#1">迫害精英</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf1176117.md#1">卖国恶行</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/ntdtv/blob/master/gb/prog1704_1.md#1">百年红祸</a></p>
+</details>
+ <p><details><summary><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/9p.md#1">九评与三退大潮</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf5657.md#1">三退精选</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nsc1030.md#1">三退评论</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf3046.md#1">九评三退</a></p>
+</details>
+<p><details><summary><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf5790.md#1">关注法轮功真相</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf5792.md#1">中共造假</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf5562.md#1">伪火真相</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf4378.md#1">常见问题</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf4386.md#1">社会支持</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6119.md#1">各国褒奖</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf5735.md#1">两岸对比</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6120.md#1">民众声援</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf3180.md#1">海外弘传</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf1188594.md#1">难忘记忆</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf5410.md#1">万人上访</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf4389.md#1">真相特辑</a></p>
+</details>
+<details><summary><a target="_blank" href="https://github.com/biqjtb3721/ntdtv/blob/master/gb/prog447_1.md#1">揭中共活摘器官</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf5877.md#1">事件报导</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf5878.md#1">各界反响</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf5881.md#1">遭遇记录</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf5882.md#1">恶人名录</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf5883.md#1">最新活动</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf5947.md#1">国际调查</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf5948.md#1">贩尸黑幕</a></p>
+</details>
+<p><details><summary><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6124.md?fldfbiqjtb3721#1">实名起诉江泽民</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6124.md#1">大陆控告</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6125.md#1">海外控告</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6126.md#1">民众声援</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6127.md#1">各国声援</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6148.md#1">迫害恶行</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6149.md#1">各界评论</a></p>
+<p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6150.md#1">法律依据</a></p>
+</details>
+
+<h2><p><div><strong>中共党（/团/队）员走向新生的第一步</strong></p></h2>
+  <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5ee0f72e5e585455539"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/certificate.jpg" width=640></a>
 <p><strong><div style=<p align="left">
-全球退党中心近日发起了一项征签倡议活动：终结共产党。“全球退党中心”表示，这能得到神的眷顾和救度，远离瘟疫。</p>
-<p>全球退党中心在其名为“终结共产党”的征签网站上写道：“如果中共不撒谎，这场（病毒）大流行本可避免。”“现在是所有人拒绝中共恶魔，终结中共的时候了。”</p>
-<p>6月26日，全球退党中心主席易蓉向大纪元记者介绍了这次征签倡议活动的目的，“共产主义在全球蔓延，西方世界被中共渗透。人们对这个历史上前所未有的邪恶沉默、无视了太久，招来了毁灭性的灾难。”</p>
-<p>“我们要唤起人们心中的正义和良知，让他们认清中共的邪恶，同时，也给他们作出选择的机会。”</p>
-<p>“全球各个角落的人们从内心发出终结共产党的呼声，就能得到神的眷顾和救度，远离这场瘟疫。”</p>
-<p>易蓉说，加入过中共党、团、队的华人，需要在退党网站或通过三退（退党、退团、退队，简称“三退”）义工<a href="https://hm597.github.io?p=5ee0f72e5e585455539&u=santui" rel="nofollow">声明退出中共党、团、队组织（点击進入）</a>，脱离中共魔掌；对西方人来说，他们也需要了解真相，了解中共恶党的邪恶本质，才能远离危险。</p>
-<p>易蓉介绍，征签活动目前仅开始几天，就已收到大量来自各方的正义支持以及合作意向。“我们感受到，世界在期盼著结束中共的时刻。”</p>
-<p>全球退党中心在其“终结共产党”的征签网站上了列举了中共的主要罪行，包括隐瞒中共病毒（武汉肺炎）疫情，导致疫情全球蔓延；毁坏香港自治；中共对内迫害民众，对外渗透，实施全球扩张等。</p>
-<p>其列举的中共主要罪行内容如下（略有删减和文字修改）：</p>
-<p>一、中共病毒</p>
-<p>中共撒谎，人们死亡。从“可防可控”到“人传人”，中共的宣传机器拖延几个月，至2020年1月才承认中共病毒疫情的严重，但为时已晚，病毒已经导致全球大流行。</p>
-<p>大规模封城。由于采取强制性隔离措施，中国发生了无数悲剧。家人被拖到卫生条件差的隔离中心隔离；家中还住着染疫者，门口却被警察焊死。中国人疑惑：谁更危险？是病毒，还是中共？</p>
-<p>疫情全球爆发。至2020年7月，全球超过1千多万人确诊，超过50万人死于中共病毒。第二波疫情尚未到来。如果中共不撒谎，所有这些本来是可以避免的。他们（中共）会停止撒谎吗？还是我们应该停止相信中共。</p>
-<p>北京第二波疫情到来？现在，北京开始显示出第二波疫情的迹象。它有可能成为另一个武汉。然而，随着独立记者和举报人受到惩罚和被噤声，几乎可以保证外界对真实情况不会了解很多。</p>
-<p><strong>二、香港</strong></p>
-<p>毁坏香港的“一国两制”。中共通过港版《国安法》，禁止在香港的“叛国、分裂国家、煽动叛乱和颠覆国家的行为”。该法例通过，香港很可能成为中共的另一个省。但是，香港人不会轻言放弃自由。多年来，他们勇敢、和平地抗议，抵制中共。</p>
-<p>引渡法案。如果该法案获得通过，中共可以逮捕任何想逮捕的香港政治异议人士。</p>
-<p><strong>三、全球渗透</strong></p>
-<p>“一带一路”。中共自2013年发起“一带一路”，至今68个国家加入，其目的是将这些国家拖入巨额债务，掠夺这些国家的资源，重塑国际秩序。</p>
-<p>华为和5G。5G不仅是超高速移动宽带，如果华为成为提供商，它将为中共提供一种简便方法来监视每个人的在线活动。</p>
-<p>孔子学院。孔子学院不是教授孔夫子的传统智慧，而是在教授汉语的同时，进行中共的外宣。至2019年，中共在六大洲数十个国家和地区设立530所孔子学院。</p>
-<p>千人计划。千人计划吸引并鼓励海外学者从事经济间谍活动和盗窃知识产权。</p>
-<p><strong>四、宗教迫害</strong></p>
-<p>迫害法轮功。法轮功是以“真、善、忍”为原则的平和修炼功法。1999年以前，中国大约1亿人修炼。前中共党魁江泽民因恐惧法轮功广受民众欢迎，而视之为威胁，下令“消灭法轮功”。数百万法轮功学员被绑架、酷刑、谋杀，甚至被活摘器官。这场迫害持续至今。</p>
-<p>强制活摘人体器官。受害者主要是法轮功学员，也可能包括政治异见人士和其他公民。据估计，自2000年以来，中共已经实施了超过一百万例的谋杀性器官移植。</p>
-<p>无神论和反宗教。共产主义基于无神论。在整个统治过程中，中共摧毁并控制了难以计数的修道院和庙宇，逮捕各种宗教信徒，包括基督徒、天主教徒、穆斯林、佛教徒等。</p>
-<p><strong>五、恐怖暴政和鲜血</strong></p>
-<p>文化大革命。从1966年至1976年，这一为期10年的运动影响了数亿人，数百万人丧生。其破坏性不仅限于杀死生命，也包括通过暴力破坏中国传统的道德标准，它撕碎了民族的灵魂，破坏了五千年的灿烂文化。</p>
-<p>一胎化。中共控制了中国人生活的方方面面，包括人口。中共的计划生育政策“阻止了四亿婴儿的出生”。换句话说，这些婴儿在出生之前就被杀死了。</p>
-<p>1989年天安门广场大屠杀。</p>
-<p><strong>六、觉醒和希望</strong></p>
-<p>中国人正在从中共的谎言中苏醒。自2004年大纪元发表《九评共产党》至今（至7月），超过3.6亿中国人声明退出中共党、团、队组织。这一数字每一天在增长。</p>
-<p>结束中共：终结共产党！现在是所有人一起发声的时候了。加入“终结共产党”的行列，今天就签署请愿书！没有中共，我们将共同迎来一个美好的世界！</p>
-<p>请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5ee0f72e5e585455539&u=santui" rel="nofollow">声明退出共产党、共青团、少先队组织（点击進入）</a>
+近日，中共党媒罕见的转载《纽约时报》的报导，引述知情人士的话说，美国政府正在考虑全面禁止中共党员及其家属入境美国，并授权联邦政府撤销中共党员及其家属的签证，已经取得签证者要撤销和 驱逐出境 ，甚至禁止中共党员的子女就读美国大学。此消息传出后，立即引发了新一轮的 退党浪潮 ，海外主动退党的人数每天都持续上升。</p>
+<p> 该讯息已在中共内部引发恐慌，给予中共致命打击。消息爆出当晚，谷歌搜索“退党”一词的搜索量迅猛增加。中共声称有9200万党员，美国政府估算，可能受此影响的中国人高达2.7亿。如何退出中共、避免被美国制裁与连累家人，成为很多中国人切身的课题与抉择。
+美国移民法明确规定， 恐怖组织 成员和 共产党员 不得移民美国。中共作恶多端，一贯以谎言和暴力维系政权，从三反、五反、文革、六四、迫害法轮功等，至少造成无辜的八千万人非正常死亡，天理不容。中共党员曾经宣誓，要将生命献给共产党，成为它的一份子其实是个很不光彩的纪录。</p>
+<p>近年来，美国政府对中国 共产党员 移民的审查已趋严格，正在逐步收紧跟中共相关的签证。明慧网在二零一九年五月底发布的《通告》指出，美国政府将更严格的审核签证申请、对 人权 及宗教迫害者拒发签证，已发签证者（包括“绿卡”持有者）也可能被拒绝入境。国务院官员透露，有28个国家已经制定或准备制定类似于美国的《全球马格尼茨基人权问责法》，对人权迫害者拒发签证、冻结资产。</p>
+<p>今年五月，美国决定取消与中共军方所属大学有直接关系的中国学生和研究人员的签证，并将这些人驱除出境，这将涉及数千中国公民。近日川普签署《香港自治法》后，国务院将提出涉及迫害香港人的中港官员的名单，对其进行签证和经济制裁；国务卿蓬佩奥已宣布禁止包括华为在内的中国科技公司部分员工的签证，因为他们“为全球侵犯 人权 的政权提供物质支持”。</p>
+<p>根据美国移民法律，如果申请入籍者隐瞒自己是共产党员，靠欺骗手法入境、入籍的话，一旦遭到举报，随时可能被吊销绿卡，并遭遣返。世界经济日报二零一六年报导，59岁的华人男子林禄（LuLin，译音）在申请入籍成为美国公民时，隐瞒曾为中共党员的事实，被控移民诈欺罪名成立，面临最高五年徒刑及罚款25万元的惩罚。</p>
+<p>自二零零四年十二月，大纪元退党网站开启了退党渠道，迄今已有三亿六千万人公开表明“三退”（即退出中国共产党、共青团和少先队）。《九评共产党》书中提出了“天灭中共”，其意指中共是危害全人类的邪灵恶党，只要坚守良知善念，顺应天意，神佛就会帮助世人清除红魔。退党网站上发表的“三退声明”可在“天灭中共”、清算其党徒时，作为自身清白、免受牵连的见证。</p>
+<p>尤其因中共蓄意隐瞒，造成中共病毒（COVID-19）在全球大爆发，迄今逾1500万人确诊、60多万人死亡（不含中共隐匿数字）。中共毫无人性的做法让中国人，乃至全世界，更清醒的认识它的邪恶本质。</p>
+<p>美国洛杉矶退党中心表示，最近办理“三退”的人数比以往增加了很多。有些人对中共隐匿疫情的做法很愤怒，想要退出来；有些人原本在中国大陆被中共蒙骗，听不到真实的消息，当突破了中共防火墙或置身美国了解真相后，觉得很羞辱，也要声明退出中共一切组织。</p>
+<p>退党中心的义工说，现在想要三退者，包括刚从中国大陆出来的中国人，也有在美国生活了很长时间的老移民。甚至已经在美国生活了二十年，早已经是公民了，最近打电话给退党中心，说退了安心。</p>
+<p>近年许多海外华人用“全球退党服务中心”签发的“三退证书”，做为办理身份的法律支持文件，已经得到美国和许多民主国家的认可，《九评共产党》一书更成为美国移民局官员审批身份时的重要参考书。</p>
+<p>以美国为首的自由世界，近期针对中共的全面打击，正迅速有序的展开。美国是制裁中共官员，不是中国人民，两者不能混淆。《魔鬼在统治着我们的世界》一书（第十八章）指出：“中共不是正常意义上的政党或政权，它不代表中国人民，而是共产邪灵在人间的代表。与中共交往就是与魔共舞，与中共友善就是在姑息魔鬼、助恶为虐，把人类推向绝路。反过来讲，对中共的反击就是一场正与邪的较量，这不是单纯的国家利益之争，更是为了人类的未来”。</p>
+<p>在中共崩解覆亡之前，眼下正是弃暗投明的好机会，避免成为中共的陪葬品。超过3.6亿中国民众选择退出中国共产党、共青团、少先队，就表明彻底与中共切割，不再给中共当替罪羊，这是明智的选择。退党才能保平安，也是走向新生的第一步。</p>
+<p>善恶一念间，却是天堂与地狱的分野。那些还没有退出中共相关组织的人，应该马上清醒过来，与邪恶的红魔划清界线。此时不退党（/团/队），更待何时？机缘稍纵即逝，犹豫不决可能铸下大错，空留难以弥补的遗憾。</p>
+<p><div align=center><h3><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5ee0f72e5e585455539&u=santui" rel="nofollow"声明退出中共党（/团/队）（点击進入）</a></h3>
 </p>
 </div>
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5ee0f72e5e585455539"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
