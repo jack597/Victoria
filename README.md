@@ -3,7 +3,7 @@
 <h3><strong><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f0c675e5e585455533&u=santui" rel="nofollow">点击这里: 退出中共党、团、队组织！ 走向新生的第一步！</a></strong></h3><br>
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f0c675e5e585455533"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
-[代表14亿被监控的人说话 中共谎言知多少](https://github.com/ofn1/Victoria/blob/master/readme25.md)
+[代表14亿被监控的人说话 中共谎言知多少](https://github.com/ofn1/Victoria/edit/master/README.md)
 <div align=center><h3><b><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f0c675e5e585455533">● 滙真网入口1 ● </a></b></h3></div>
   
 <div align=center><h3><b><a href="https://hm597.github.io?p=5f0c675e5e585455533">● 滙真网入口2 ● </a></b></h3></div>
