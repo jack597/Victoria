@@ -122,9 +122,11 @@
 </p>
 </div>
   
- [代表14亿被监控的人说话 中共谎言知多少](https://github.com/ofn1/Victoria/wiki)
+
 
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f0c675e5e585455533"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
+  
+  [代表14亿被监控的人说话 中共谎言知多少](https://github.com/ofn1/Victoria/wiki) 
   
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f0c675e5e585455533"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
 <h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
