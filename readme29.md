@@ -80,7 +80,7 @@
 <p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6150.md#1">法律依据</a></p>
 </details>
 
-https://github.com/ofn1/Victoria/wiki
+
 
 <h2><p><div><strong>中共党（/团/队）员走向新生的第一步</strong></p></h2>
   <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f2a27b71713e211133"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/certificate.jpg" width=640></a>
