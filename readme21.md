@@ -106,7 +106,7 @@
 
 <h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
   
-<div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/readme21.md"><img src="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/readme1_qr.jpg" title="分享本平台"></img></a>
+<div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/readme21.md"><img src="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/readme21_qr.jpg" title="分享本平台"></img></a>
 
 <div align=center><h4>请收藏本站网址：https://github.com/ofn1/Victoria/blob/master/readme21.md</h4></div>
 
