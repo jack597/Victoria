@@ -82,7 +82,7 @@
 <p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6150.md#1">法律依据</a></p>
 </details>
 
-<h1><p><div><strong>中共党（/团/队）员走向新生的第一步</strong></p></h1>
+<h2><p><div><strong>中共党（/团/队）员走向新生的第一步</strong></p></h2>
  <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f1ee6c716e21611139"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.6/certificate.jpg" width=640></a>
 <p><strong><div style=<p align="left">
 近日，中共党媒罕见的转载《纽约时报》的报导，引述知情人士的话说，美国政府正在考虑全面禁止中共党员及其家属入境美国，并授权联邦政府撤销中共党员及其家属的签证，已经取得签证者要撤销和 驱逐出境 ，甚至禁止中共党员的子女就读美国大学。此消息传出后，立即引发了新一轮的 退党浪潮 ，海外主动退党的人数每天都持续上升。</p>
