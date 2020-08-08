@@ -109,5 +109,5 @@
 <div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/readme10.md"><img src="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/readme10_qr.jpg" title="分享本平台"></img></a>
 
 <div align=center><h4>请收藏本站网址：https://github.com/ofn1/Victoria/blob/master/readme10.md</h4></div>
-<div align=center><h3>本站短网址：https://is.gd/qfyhz </h3></div>
+<div align=center><h4>本站短网址：https://is.gd/qfyhz </h4></div>
 <div>
