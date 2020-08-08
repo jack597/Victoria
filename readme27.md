@@ -1,15 +1,15 @@
-<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5f2ec93e22512524535"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640" width=640></a>
-<h3><strong><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5f2ec93e22512524535&u=santui" rel="nofollow">“三退，您退了吗？” 点击这里: 退出中共党（/团/队）</a></strong></h3><br>
- <div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5f2ec93e22512524535"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
-<div align=center><h3><b><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5f2ec93e22512524535">● 滙真网入口1 ● </a></b></h3></div>
+<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5f2eca4655275854537"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640" width=640></a>
+<h3><strong><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5f2eca4655275854537&u=santui" rel="nofollow">“三退，您退了吗？” 点击这里: 退出中共党（/团/队）</a></strong></h3><br>
+ <div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5f2eca4655275854537"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align=center><h3><b><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5f2eca4655275854537">● 滙真网入口1 ● </a></b></h3></div>
   
-<div align=center><h3><b><a href="https://anna795.github.io?p=5f2ec93e22512524535">● 滙真网入口2 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://anna795.github.io?p=5f2eca4655275854537">● 滙真网入口2 ● </a></b></h3></div>
 
 <div align=center><h3><b><a href="https://github.com/gofanben/gm/blob/master/swsp.md">● 友好链接入口1 ● </a></b></h3></div>
 
 <div align=center><h3><b><a href="https://github.com/ofatuf344/www/blob/master/README.md">● 友好链接入口2 ● </a></b></h3></div>
 
-<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5f2ec93e22512524535"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5f2eca4655275854537"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <h2><p><strong>免费翻墙软件下载</strong></p></h2>
 
@@ -29,7 +29,7 @@
 
 [环门（电脑版038)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.9/oGate.zip)
 
-<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5f2ec93e22512524535"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5f2eca4655275854537"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
  
  <h2><p><div><strong>探寻真相</strong></p></h2> 
  
@@ -83,7 +83,7 @@
 
 
 <h2><p><div><strong>中共党（/团/队）员走向新生的第一步</strong></p></h2>
-  <div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5f2ec93e22512524535"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/certificate.jpg" width=640></a>
+  <div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5f2eca4655275854537"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/certificate.jpg" width=640></a>
 <p><strong><div style=<p align="left">
 近日，中共党媒罕见的转载《纽约时报》的报导，引述知情人士的话说，美国政府正在考虑全面禁止中共党员及其家属入境美国，并授权联邦政府撤销中共党员及其家属的签证，已经取得签证者要撤销和 驱逐出境 ，甚至禁止中共党员的子女就读美国大学。此消息传出后，立即引发了新一轮的 退党浪潮 ，海外主动退党的人数每天都持续上升。</p>
 <p> 该讯息已在中共内部引发恐慌，给予中共致命打击。消息爆出当晚，谷歌搜索“退党”一词的搜索量迅猛增加。中共声称有9200万党员，美国政府估算，可能受此影响的中国人高达2.7亿。如何退出中共、避免被美国制裁与连累家人，成为很多中国人切身的课题与抉择。
@@ -99,10 +99,10 @@
 <p>以美国为首的自由世界，近期针对中共的全面打击，正迅速有序的展开。美国是制裁中共官员，不是中国人民，两者不能混淆。《魔鬼在统治着我们的世界》一书（第十八章）指出：“中共不是正常意义上的政党或政权，它不代表中国人民，而是共产邪灵在人间的代表。与中共交往就是与魔共舞，与中共友善就是在姑息魔鬼、助恶为虐，把人类推向绝路。反过来讲，对中共的反击就是一场正与邪的较量，这不是单纯的国家利益之争，更是为了人类的未来”。</p>
 <p>在中共崩解覆亡之前，眼下正是弃暗投明的好机会，避免成为中共的陪葬品。超过3.6亿中国民众选择退出中国共产党、共青团、少先队，就表明彻底与中共切割，不再给中共当替罪羊，这是明智的选择。退党才能保平安，也是走向新生的第一步。</p>
 <p>善恶一念间，却是天堂与地狱的分野。那些还没有退出中共相关组织的人，应该马上清醒过来，与邪恶的红魔划清界线。此时不退党（/团/队），更待何时？机缘稍纵即逝，犹豫不决可能铸下大错，空留难以弥补的遗憾。</p>
-<p><div align=center><h3><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5f2ec93e22512524535&u=santui" rel="nofollow">声明退出中共党（/团/队）（点击進入）</a></h3>
+<p><div align=center><h3><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5f2eca4655275854537&u=santui" rel="nofollow">声明退出中共党（/团/队）（点击進入）</a></h3>
 </p>
 </div>
-<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5f2ec93e22512524535"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5f2eca4655275854537"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
   <h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
     
 <div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/readme27.md"><img src="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/readme27_qr.jpg" title="分享本平台"></img></a>
