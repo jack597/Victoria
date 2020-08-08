@@ -103,9 +103,8 @@
 </p>
 </div>
 <div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5f2ec8325756535e539"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
-  <h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
 
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
+<h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
   
 <div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/readme26.md"><img src="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/readme26_qr.jpg" title="分享本平台"></img></a>
 
