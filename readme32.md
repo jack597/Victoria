@@ -106,5 +106,5 @@
 
 <div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/readme32.md"><img src="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.7/readme32_qr.jpg" title="分享本平台"></img></a>
 <div align=center><h3>请收藏本站网址：https://github.com/ofn1/Victoria/blob/master/readme32.md</h3></div>
-<div align=center><h2>本站短网址：https://cutt.ly/513 </h2></div>
+<div align=center><h3>本站短网址：https://cutt.ly/513 </h3></div>
 <div>
