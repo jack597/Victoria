@@ -82,7 +82,8 @@
 </details>
 
 <h2><p><div><strong>中共党（/团/队）员走向新生的第一步</strong></p></h2>
-<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f2b702651272124554"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/certificate.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f2b702651272124554"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.9/certificate_1.jpg" width=640></a>
+ <p> “全球退党服务中心”推出在线办理退出中共党（团队）证书服务，图为该中心出具的退党（团队）证书（样本）。（全球退党服务中心提供）</p> 
 <p><strong><div style=<p align="left">
 近日，中共党媒罕见的转载《纽约时报》的报导，引述知情人士的话说，美国政府正在考虑全面禁止中共党员及其家属入境美国，并授权联邦政府撤销中共党员及其家属的签证，已经取得签证者要撤销和 驱逐出境 ，甚至禁止中共党员的子女就读美国大学。此消息传出后，立即引发了新一轮的 退党浪潮 ，海外主动退党的人数每天都持续上升。</p>
 <p> 该讯息已在中共内部引发恐慌，给予中共致命打击。消息爆出当晚，谷歌搜索“退党”一词的搜索量迅猛增加。中共声称有9200万党员，美国政府估算，可能受此影响的中国人高达2.7亿。如何退出中共、避免被美国制裁与连累家人，成为很多中国人切身的课题与抉择。
