@@ -1,6 +1,6 @@
 
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f2ae09b111713e4131"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640></a>
-<h3><strong><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5f2ae09b111713e4131&u=santui" rel="nofollow">“三退，您退了吗？” 点击这里: 退出中共党（/团/队）</a></strong></h3><br>
+<h3><strong><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5f2ae09b111713e4131&u=santui" rel="nofollow">“三退，您退了吗？” 点击这里: 退出中共党（团队）</a></strong></h3><br>
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f2ae09b111713e4131"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <div align=center><h3><b><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f2ae09b111713e4131">● 滙真网入口1 ● </a></b></h3></div>
@@ -82,7 +82,7 @@
 <p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6150.md#1">法律依据</a></p>
 </details>
 
-<h2><p><div><strong>中共党（/团/队）员走向新生的第一步</strong></p></h2>
+<h2><p><div><strong>中共党（团队）员走向新生的第一步</strong></p></h2>
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f2ae09b111713e4131"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.9/certificate_1.jpg" width=640></a>
  <p> “全球退党服务中心”推出在线办理退出中共党（团队）证书服务，图为该中心出具的退党（团队）证书（样本）。（全球退党服务中心提供）</p>
 <p><strong><div style=<p align="left">
@@ -93,14 +93,14 @@
 <p>今年五月，美国决定取消与中共军方所属大学有直接关系的中国学生和研究人员的签证，并将这些人驱除出境，这将涉及数千中国公民。近日川普签署《香港自治法》后，国务院将提出涉及迫害香港人的中港官员的名单，对其进行签证和经济制裁；国务卿蓬佩奥已宣布禁止包括华为在内的中国科技公司部分员工的签证，因为他们“为全球侵犯 人权 的政权提供物质支持”。</p>
 <p>根据美国移民法律，如果申请入籍者隐瞒自己是共产党员，靠欺骗手法入境、入籍的话，一旦遭到举报，随时可能被吊销绿卡，并遭遣返。世界经济日报二零一六年报导，59岁的华人男子林禄（LuLin，译音）在申请入籍成为美国公民时，隐瞒曾为中共党员的事实，被控移民诈欺罪名成立，面临最高五年徒刑及罚款25万元的惩罚。</p>
 <p>自二零零四年十二月，大纪元退党网站开启了退党渠道，迄今已有三亿六千万人公开表明“三退”（即退出中国共产党、共青团和少先队）。《九评共产党》书中提出了“天灭中共”，其意指中共是危害全人类的邪灵恶党，只要坚守良知善念，顺应天意，神佛就会帮助世人清除红魔。退党网站上发表的“三退声明”可在“天灭中共”、清算其党徒时，作为自身清白、免受牵连的见证。</p>
-<p>尤其因中共蓄意隐瞒，造成中共病毒（COVID-19）在全球大爆发，迄今逾1500万人确诊、60多万人死亡（不含中共隐匿数字）。中共毫无人性的做法让中国人，乃至全世界，更清醒的认识它的邪恶本质。</p>
+<p>尤其因中共蓄意隐瞒，造成中共病毒（COVID-19）在全球大爆发，迄今逾2300万人确诊、80多万人死亡（不含中共隐匿数字）。中共毫无人性的做法让中国人，乃至全世界，更清醒的认识它的邪恶本质。</p>
 <p>美国洛杉矶退党中心表示，最近办理“三退”的人数比以往增加了很多。有些人对中共隐匿疫情的做法很愤怒，想要退出来；有些人原本在中国大陆被中共蒙骗，听不到真实的消息，当突破了中共防火墙或置身美国了解真相后，觉得很羞辱，也要声明退出中共一切组织。</p>
 <p>退党中心的义工说，现在想要三退者，包括刚从中国大陆出来的中国人，也有在美国生活了很长时间的老移民。甚至已经在美国生活了二十年，早已经是公民了，最近打电话给退党中心，说退了安心。</p>
 <p>近年许多海外华人用“全球退党服务中心”签发的“三退证书”，做为办理身份的法律支持文件，已经得到美国和许多民主国家的认可，《九评共产党》一书更成为美国移民局官员审批身份时的重要参考书。</p>
 <p>以美国为首的自由世界，近期针对中共的全面打击，正迅速有序的展开。美国是制裁中共官员，不是中国人民，两者不能混淆。《魔鬼在统治着我们的世界》一书（第十八章）指出：“中共不是正常意义上的政党或政权，它不代表中国人民，而是共产邪灵在人间的代表。与中共交往就是与魔共舞，与中共友善就是在姑息魔鬼、助恶为虐，把人类推向绝路。反过来讲，对中共的反击就是一场正与邪的较量，这不是单纯的国家利益之争，更是为了人类的未来”。</p>
 <p>在中共崩解覆亡之前，眼下正是弃暗投明的好机会，避免成为中共的陪葬品。超过3.6亿中国民众选择退出中国共产党、共青团、少先队，就表明彻底与中共切割，不再给中共当替罪羊，这是明智的选择。退党才能保平安，也是走向新生的第一步。</p>
-<p>善恶一念间，却是天堂与地狱的分野。那些还没有退出中共相关组织的人，应该马上清醒过来，与邪恶的红魔划清界线。此时不退党（/团/队），更待何时？机缘稍纵即逝，犹豫不决可能铸下大错，空留难以弥补的遗憾。</p>
-<p><div align=center><h3><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5f2ae09b111713e4131&u=santui" rel="nofollow">声明退出中共党（/团/队）（点击進入）</a></h3>
+<p>善恶一念间，却是天堂与地狱的分野。那些还没有退出中共相关组织的人，应该马上清醒过来，与邪恶的红魔划清界线。此时不退党（团队），更待何时？机缘稍纵即逝，犹豫不决可能铸下大错，空留难以弥补的遗憾。</p>
+<p><div align=center><h3><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5f2ae09b111713e4131&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h3>
 </p>
 </div>
   
@@ -111,3 +111,4 @@
 <div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/readme5.md"><img src="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/readme5_qr.jpg" title="分享本平台"></img></a>
 
 <div align=center><h4>请收藏本站网址：https://github.com/ofn1/Victoria/blob/master/readme5.md</h4></div>
+<div align=center><h4>本站短网址：https://is.gd/sdzfs </h4></div>
