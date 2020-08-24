@@ -1,4 +1,4 @@
-
+<h2>当警察不再为独裁者效力</h2>
  <p>
   【明慧网二零二零年八月十九日】8月16日，至少有20万白俄罗斯人上街参加“自由大游行”，抗议卢卡申科通过舞弊当选连任总统，相比之下，支持卢卡申科的游行者只有数千。
  </p>
@@ -16,33 +16,7 @@
  <p>
   在网上广为传播的一段视频中，一名警察脱掉制服和帽子，转身扔向垃圾桶，他说：“我向我的国家宣誓过，但是看到明斯克发生的事，我不能再穿这套制服了。”
  </p>
- <p>
- </p>
- <center>
-  <p>
-  </p>
-  <p>
-  </p>
-  <p>
-  </p>
-  <table border="0" cellpadding="0" cellspacing="2" cols="2" width="580">
-   <tbody>
-    <tr align="CENTER" valign="top">
-     <td style="font-size: 14px;">
-      <a href="/mh/article_images/2020-8-18-belarus-police_01.jpg">
-       <img border="1" class="img-fluid aligncenter" hspace="0" src="/static/image/2020-8-18-belarus-police_01--ss.jpg" vspace="5"/>
-      </a>
-     </td>
-     <td style="font-size: 14px;">
-      <a href="/mh/article_images/2020-8-18-belarus-police_02.jpg">
-       <img alt="'一位白俄罗斯军人把军服扔到了垃圾桶（网络截图）'" border="1" class="img-fluid aligncenter" hspace="0" src="/static/image/2020-8-18-belarus-police_02--ss.jpg" vspace="5"/>
-      </a>
-     </td>
-    </tr>
-   </tbody>
-  </table>
-  一位白俄罗斯军人把军服扔到了垃圾桶（网络截图）
- </center>
+
  <p>
   “我们是为人民效力，不是为总统效力”，白俄罗斯的军人和警察开始觉醒，毕竟反对卢卡申卡的老百姓占大多数。失去武装力量就相当于猛兽没了爪牙，这是独裁者最为害怕的。示威期间，白俄罗斯开始封锁网络，并在市外设立检查站，防止更多的民众进入首都明斯克，但是面对全国最大规模的、要求他下台的抗议活动，卢卡申科被迫表示，愿意在全民公投之后移交权力，并且释放所有被捕民众。
  </p>
