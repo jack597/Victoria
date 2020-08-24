@@ -1,7 +1,7 @@
 <h1 class="title">颜丹：“退党证书”的内涵与价值</h1>
 <h4 class="author">颜丹</h4>
 <p>【大纪元2020年08月24日讯】“全球退党</a>服务中心”在8月18日这天，推出了“在线办理<a href="http://cn.epochtimes.com/gb/tag/%E9%80%80%E5%85%9A%E8%AF%81%E4%B9%A6.html">退党证书</a>”的服务。在每一份“<a href="http://cn.epochtimes.com/gb/tag/%E9%80%80%E5%85%9A.html">退党</a>证书”上都明确写有：退党者的真实姓名、出生地和出生年、月、日以及“认识到了中共的邪恶本质，声明退出中国‘共产党’、‘共青团’、‘少先队’。特授予退出党（团、队）证书，以示证明”的中英文字样。</p>
-<p><div class="adshow300" id="inarticle_ad300" style="display:inline-block; text-align: center"><script type="text/javascript">googletag.cmd.push(function() {googletag.defineSlot('/5965368/DJYcn_news_article_below_header_F4_336x250', [[300, 250], [336, 280]], 'div-gpt-ad-1399580982834-0').addService(googletag.pubads()).setCollapseEmptyDiv(true, true);googletag.enableServices();});</script><!-- DJYcn_news_article_below_header_F4_336x250 --><div id="div-gpt-ad-1399580982834-0" data-cb-ad-id="inside-content-300"><script type="text/javascript">googletag.cmd.push(function() { googletag.display('div-gpt-ad-1399580982834-0'); });</script></div></div>简简单单几句话，但其内涵与价值却不同凡响。不知读者是否能一眼看出，上述字数不多的几句正文中，到底哪句话、哪个词才是点睛之笔呢？答案就是“证明”和“认识到了中共的邪恶本质”。</p>
+简简单单几句话，但其内涵与价值却不同凡响。不知读者是否能一眼看出，上述字数不多的几句正文中，到底哪句话、哪个词才是点睛之笔呢？答案就是“证明”和“认识到了中共的邪恶本质”。</p>
 <p>或许，很多人都认为，所谓“<a href="http://cn.epochtimes.com/gb/tag/%E9%80%80%E5%85%9A%E8%AF%81%E4%B9%A6.html">退党证书</a>”，不就是证明一下我退出了中共的组织吗？但其实远不止如此。应该说，每一位退党人士都有意、无意的走过了一次摆脱精神奴役、实现灵魂觉醒的心路历程。这份难能可贵的证书足以证明，每个中国人都能实现如下的四大人生转变：</p>
 <p>其一、从被迫加入到自由选择</p>
 <p>在被中共奴役、胁迫的漫长岁月中，中国人何时有过自己能真正“当家做主”的时候？自由向来是中国人最难以触及的奢侈品。从言论、信仰自由到免于贫困、免于恐惧的自由，除了中共权贵，普通老百姓似乎从未真正拥有过。</p>
