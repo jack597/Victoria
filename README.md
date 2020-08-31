@@ -7,7 +7,7 @@
   
 <div align=center><h3><b><a href="https://hm597.github.io?p=5f0c675e5e585455533">● 滙真网入口2 ● </a></b></h3></div>
 
-<div align=center><h3><b><a href="https://github.com/gofanben/gm/blob/master/swsp.md">● 友好链接入口1 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://github.com/jyg856468/4/wiki">● 友好链接入口1 ● </a></b></h3></div>
 
 <div align=center><h3><b><a href="https://github.com/ofatuf344/www/blob/master/README.md">● 友好链接入口2 ● </a></b></h3></div>
 
