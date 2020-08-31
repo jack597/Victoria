@@ -24,7 +24,7 @@
 
 [自由门（电脑版7.88)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.9/fg788p.zip)
 
-[神州明见（安卓版4.2)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.9/SzzdOgate.apk)
+[聚缘阁（安卓版802)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.0/jyg802.apk)
 
 [环门（安卓版039)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@1.9/oGatea039.apk)
 
