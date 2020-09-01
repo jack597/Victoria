@@ -163,4 +163,4 @@
 <div align=center><h4>请收藏本站网址：https://github.com/ofn1/Victoria/blob/master/readme12.md</h4></div>
 <div align=center><h4>本站短网址：https://is.gd/hzyycg</h4></div>
 <div align=center><h4>本站短网址：https://git.io/hzyycg </h4></div>
-
+<div align=center><h4>本站短网址：https://cutt.ly/hzyycg</h4></div>
