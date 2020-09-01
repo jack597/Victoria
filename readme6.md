@@ -163,4 +163,4 @@
 <div align=center><h4>请收藏本站网址：https://github.com/ofn1/Victoria/blob/master/readme6.md</h4></div>
 <div align=center><h4>本站短网址：https://is.gd/yymjj </h4></div>
 <div align=center><h4>本站短网址：https://git.io/yymjj </h4></div>
-
+<div align=center><h4>本站短网址：https://cutt.ly/yymjj </h4></div>
