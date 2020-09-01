@@ -84,7 +84,7 @@
 <h2><p><div><strong>唤醒中国人</strong></p></h2>
 <h3><p><div><strong>梦晨：中共所做的一切都是在毁灭人</strong></p></h3>
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f4d161e5527575d536"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.9/certificate_1.jpg" width=640></a>
- <p><h5> “全球退党服务中心”推出在线办理退出中共党（团队）证书服务，图为该中心出具的退党（团队）证书（样本）。（全球退党服务中心提供）</h5></p> 
+ <p> <h5>“全球退党服务中心”推出在线办理退出中共党（团队）证书服务，图为该中心出具的退党（团队）证书（样本）。（全球退党服务中心提供）</h5></p> 
 <p><div style=<p align="left">
 武汉肺炎（中共病毒），中共掩盖疫情，谎言欺骗中国人，欺骗全世界人，用缩水的疫情数字，作为治理的功绩，忽悠世人，特别是中国人，使他们信以为真，自感环境还好，疫情防御的挺好，似乎很快就会过去，不知危险近在咫尺。中国人生活在一个虚假的、被谎言编织的世界里，听不到谎言之外的声音。当听到真相时，有些人反倒觉的不顺耳，不能接受了，排斥。一揭露中共罪过，就很反感，认为是在搞什么，不爱国，是反华势力，吃里扒外，甚至有人反问：你是中国人吗？</div></p>
 <p><strong><div style=<p align="left">
@@ -162,5 +162,6 @@
 
 <div align=center><h4>请收藏本站网址：https://github.com/ofn1/Victoria/blob/master/readme3.md</h4></div>
 <div align=center><h4>本站短网址：https://is.gd/sdzft </h4></div>
-
+<div align=center><h4>本站短网址：https://git.io/sdzft</h4></div>
+<div align=center><h4>本站短网址：https://cutt.ly/sdzft</h4></div>
 
