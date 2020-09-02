@@ -4,8 +4,8 @@
 
 <div align=center><h3><b><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5f4db524dea8d6a1d35">● 滙真网入口1 ● </a></b></h3></div>
 <div align=center><h3><b><a href="https://s3.ap-southeast-2.amazonaws.com/jn9107vt/index.html?p=5f4db524dea8d6a1d35">● 滙真网入口1 ● </a></b></h3></div>
-<div align=center><h3><b><a href="https://s3.us-west-2.amazonaws.com/acn5gtwr/index.html?p=5f4db524dea8d6a1d35">● 滙真网入口1 ● </a></b></h3></div>  
-<div align=center><h3><b><a href="https://mqq2.github.io?p=5f4db524dea8d6a1d35">● 滙真网入口2 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://s3.us-west-2.amazonaws.com/acn5gtwr/index.html?p=5f4db524dea8d6a1d35">● 滙真网入口3 ● </a></b></h3></div>  
+<div align=center><h3><b><a href="https://mqq2.github.io?p=5f4db524dea8d6a1d35">● 滙真网入口4 ● </a></b></h3></div>
 
 
 <div align=center><h3><b><a href="https://gitlab.com/juyuange/2/-/wikis">● 友好链接入口1 ● </a></b></h3></div>
