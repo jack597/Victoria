@@ -154,7 +154,7 @@
 </div>
 
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f511d565e585455531"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a></div>
-<p># [颜丹：“退党证书”的内涵与价值](https://github.com/ofn1/Victoria/edit/master/README.md) </p>
+<p># [颜丹：“退党证书”的内涵与价值](https://github.com/ofn1/Victoria/master/README.md) </p>
   
 <h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
   
