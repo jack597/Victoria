@@ -104,9 +104,8 @@
   <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f0c675e5e585455533"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
   
   [颜丹：“退党证书”的内涵与价值](https://github.com/ofn1/Victoria/wiki) 
-  [11](https://github.com/ofn1/Victoria/tree/master/xszl)
   
-<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f0c675e5e585455533"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
+  <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f0c675e5e585455533"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
 <h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
 
 <div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/README.md"><img src="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/readme_qr.jpg" title="分享本平台"></img></a>
