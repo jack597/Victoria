@@ -3,8 +3,8 @@
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f511d565e585455531"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <div align=center><h3><b><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f511d565e585455531">● 滙真网入口1 ● </a></b></h3></div>
-href="https://s3.ap-northeast-1.amazonaws.com/8kqxgvu5/index.html?p=5f511d565e585455531">● 滙真网入口2 ● </a></b></h3></div>
- href="https://s3.us-west-2.amazonaws.com/cn3oe3zg/index.html?p=5f511d565e585455531">● 滙真网入口3 ● </a></b></h3></div> 
+<div align=center><h3><b><a href="https://s3.ap-northeast-1.amazonaws.com/8kqxgvu5/index.html?p=5f511d565e585455531">● 滙真网入口2 ● </a></b></h3></div>
+ <div align=center><h3><b><a href="https://s3.us-west-2.amazonaws.com/cn3oe3zg/index.html?p=5f511d565e585455531">● 滙真网入口3 ● </a></b></h3></div> 
 <div align=center><h3><b><a href="https://hm597.github.io?p=5f511d565e585455531">● 滙真网入口4 ● </a></b></h3></div>
 
 
@@ -157,7 +157,7 @@ href="https://s3.ap-northeast-1.amazonaws.com/8kqxgvu5/index.html?p=5f511d565e58
 </div>
 
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f511d565e585455531"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
-  [颜丹：“退党证书”的内涵与价值](https://github.com/ofn1/Victoria/wiki) 
+[颜丹：“退党证书”的内涵与价值](https://github.com/ofn1/Victoria/wiki) 
   
 <h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
   
