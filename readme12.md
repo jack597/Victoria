@@ -152,7 +152,7 @@
 <p>危机中，神在最后唤醒人类，给了人选择善与恶的自由意志。中共罪大恶极，天要灭中共，作为中共组织（党团队）成员必然受牵连。只有远离中共，退出中共的一切（党团队）组织，把曾经发过的毒誓抹去，从内心彻底和它切割，相信“法轮大法好，真善忍好”，才能逃过瘟疫劫难。大陆同胞啊，该猛醒了！</div></p>
 <p><div style=<p align="left">责任编辑：高义</div></p>
 
-<p><div align=center><h3><a href="https://s3.ap-southeast-1.amazonaws.com/nxtx43c6/index.html?p=5f4db524dea8d6a1d35&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h3>
+<p><div align=center><h3><a href="https://mqq2.github.io?p=5f4db524dea8d6a1d35&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h3>
 </p>
 </div>
 
