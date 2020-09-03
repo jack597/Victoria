@@ -5,7 +5,7 @@
 <div align=center><h3><b><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5f4d161e5527575d536">● 滙真网入口1 ● </a></b></h3></div>
 <div align=center><h3><b><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f4d161e5527575d536">● 滙真网入口2 ● </a></b></h3></div>
 <div align=center><h3><b><a href="https://s3.ap-southeast-1.amazonaws.com/nxtx43c6/index.html?p=5f4d161e5527575d536">● 滙真网入口3 ● </a></b></h3></div>
- <div align=center><h3><b><a href="https://vk580.github.io?p=5f4d161e5527575d536">● 滙真网入口2 ● </a></b></h3></div>
+ <div align=center><h3><b><a href="https://vk580.github.io?p=5f4d161e5527575d536">● 滙真网入口4 ● </a></b></h3></div>
 
 <div align=center><h3><b><a href="https://gitlab.com/juyuange/2/-/wikis">● 友好链接入口1 ● </a></b></h3></div>
 
