@@ -103,7 +103,7 @@
 <p><div align=center><h3><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5f0c675e5e585455533&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h3>
   <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f0c675e5e585455533"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
   
-  [代表14亿被监控的人说话 中共谎言知多少](https://github.com/ofn1/Victoria/wiki) 
+  [颜丹：“退党证书”的内涵与价值](https://github.com/ofn1/Victoria/wiki) 
   
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f0c675e5e585455533"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
 <h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
