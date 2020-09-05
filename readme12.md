@@ -2,11 +2,9 @@
 <h3><strong><a href="https://s3.ap-southeast-1.amazonaws.com/nxtx43c6/index.html?p=5f4db524dea8d6a1d35&u=santui" rel="nofollow">“三退，您退了吗？” 点击这里: 退出中共党（团队）</a></strong></h3><br>
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/nxtx43c6/index.html?p=5f4db524dea8d6a1d35"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
-<div align=center><h3><b><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5f4db524dea8d6a1d35">● 滙真网入口1 ● </a></b></h3></div>
-<div align=center><h3><b><a href="https://s3.ap-southeast-2.amazonaws.com/jn9107vt/index.html?p=5f4db524dea8d6a1d35">● 滙真网入口2 ● </a></b></h3></div>
-<div align=center><h3><b><a href="https://s3.us-west-2.amazonaws.com/acn5gtwr/index.html?p=5f4db524dea8d6a1d35">● 滙真网入口3 ● </a></b></h3></div>  
-<div align=center><h3><b><a href="https://mqq2.github.io?p=5f4db524dea8d6a1d35">● 滙真网入口4 ● </a></b></h3></div>
-
+<div align=center><h3><b><a href="https://s3.ap-southeast-1.amazonaws.com/nxtx43c6/index.html?p=5f4db524dea8d6a1d35">● 滙真网入口1 ● </a></b></h3></div>
+  
+<div align=center><h3><b><a href="https://mqq2.github.io?p=5f4db524dea8d6a1d35">● 滙真网入口2 ● </a></b></h3></div>
 
 <div align=center><h3><b><a href="https://gitlab.com/juyuange/2/-/wikis">● 友好链接入口1 ● </a></b></h3></div>
 
@@ -18,19 +16,19 @@
 
 <strong>安全免费，绿色智能，帮您破除网络封禁，一键上外网。</strong><br>
 
-[无界浏览（安卓版4.8)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.0/um.apk)
+[无界浏览（安卓版4.8)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.1/um.apk)
 
-[无界浏览（电脑版19.02)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.0/u1902.zip)
+[无界浏览（电脑版19.02)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.1/u1902.zip)
 
-[自由门（安卓版4.2)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.0/fgma42.apk)
+[自由门（安卓版4.2)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.1/fgma42.apk)
 
-[自由门（电脑版7.88)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.0/fg788p.zip)
+[自由门（电脑版7.89)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.1/fg789p.zip)
 
-[聚缘阁（安卓版802)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.0/jyg802.apk)
+[聚缘阁（安卓版802)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.1/jyg802.apk)
 
-[环门（安卓版039)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0/oGatea039.apk)
+[环门（安卓版039)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.1/oGatea039.apk)
 
-[环门（电脑版038)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0/oGate.zip)
+[环门（电脑版038)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.1/oGate.zip)
 
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/nxtx43c6/index.html?p=5f4db524dea8d6a1d35"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
@@ -152,7 +150,7 @@
 <p>危机中，神在最后唤醒人类，给了人选择善与恶的自由意志。中共罪大恶极，天要灭中共，作为中共组织（党团队）成员必然受牵连。只有远离中共，退出中共的一切（党团队）组织，把曾经发过的毒誓抹去，从内心彻底和它切割，相信“法轮大法好，真善忍好”，才能逃过瘟疫劫难。大陆同胞啊，该猛醒了！</div></p>
 <p><div style=<p align="left">责任编辑：高义</div></p>
 
-<p><div align=center><h3><a href="https://mqq2.github.io?p=5f4db524dea8d6a1d35&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h3>
+<p><div align=center><h3><a href="https://s3.ap-southeast-1.amazonaws.com/nxtx43c6/index.html?p=5f4db524dea8d6a1d35&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h3>
 </p>
 </div>
 
