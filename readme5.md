@@ -24,7 +24,7 @@
 
 [自由门（安卓版4.2)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.1/fgma42.apk)
 
-[自由门（电脑版7.88)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.1/fg788p.zip)
+[自由门（电脑版7.89)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.1/fg789p.zip)
 
 [聚缘阁（安卓版802)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.1/jyg802.apk)
 
