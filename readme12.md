@@ -1,16 +1,18 @@
-<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/nxtx43c6/index.html?p=5f4db524dea8d6a1d35"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640></a>
-<h3><strong><a href="https://s3.ap-southeast-1.amazonaws.com/nxtx43c6/index.html?p=5f4db524dea8d6a1d35&u=santui" rel="nofollow">“三退，您退了吗？” 点击这里: 退出中共党（团队）</a></strong></h3><br>
-<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/nxtx43c6/index.html?p=5f4db524dea8d6a1d35"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5f5473519e689661938"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640></a>
+<h3><strong><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5f5473519e689661938&u=santui" rel="nofollow">“三退，您退了吗？” 点击这里: 退出中共党（团队）</a></strong></h3><br>
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5f5473519e689661938"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
-<div align=center><h3><b><a href="https://s3.ap-southeast-1.amazonaws.com/nxtx43c6/index.html?p=5f4db524dea8d6a1d35">● 滙真网入口1 ● </a></b></h3></div>
-  
-<div align=center><h3><b><a href="https://mqq2.github.io?p=5f4db524dea8d6a1d35">● 滙真网入口2 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5f5473519e689661938">● 滙真网入口1 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://mqq2.github.io?p=5f5473519e689661938">● 滙真网入口2● </a></b></h3></div>
+<div align=center><h3><b><a href="https://s3.ap-southeast-2.amazonaws.com/jn9107vt/index.html?p=5f5473519e689661938">● 滙真网入口3 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://s3.us-west-2.amazonaws.com/acn5gtwr/index.html?p=5f5473519e689661938">● 滙真网入口4 ● </a></b></h3></div>
+
 
 <div align=center><h3><b><a href="https://gitlab.com/juyuange/2/-/wikis">● 友好链接入口1 ● </a></b></h3></div>
 
 <div align=center><h3><b><a href="https://github.com/ofatuf344/www/blob/master/README.md">● 友好链接入口2 ● </a></b></h3></div>
 
-<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/nxtx43c6/index.html?p=5f4db524dea8d6a1d35"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5f5473519e689661938"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <h2><p><strong>免费翻墙软件下载</strong></p></h2>
 
@@ -30,7 +32,7 @@
 
 [环门（电脑版038)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.1/oGate.zip)
 
-<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/nxtx43c6/index.html?p=5f4db524dea8d6a1d35"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5f5473519e689661938"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <h2><p><div><strong>探寻真相</strong></p></h2> 
  
@@ -83,7 +85,7 @@
 
 <h2><p><div><strong>唤醒中国人</strong></p></h2>
 <h3><p><div><strong>梦晨：中共所做的一切都是在毁灭人</strong></p></h3>
-<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/nxtx43c6/index.html?p=5f4db524dea8d6a1d35"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.9/certificate_1.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5f5473519e689661938"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.9/certificate_1.jpg" width=640></a>
  <p> <h5>“全球退党服务中心”推出在线办理退出中共党（团队）证书服务，图为该中心出具的退党（团队）证书（样本）。（全球退党服务中心提供）</h5></p> 
 <p><div style=<p align="left">
 武汉肺炎（中共病毒），中共掩盖疫情，谎言欺骗中国人，欺骗全世界人，用缩水的疫情数字，作为治理的功绩，忽悠世人，特别是中国人，使他们信以为真，自感环境还好，疫情防御的挺好，似乎很快就会过去，不知危险近在咫尺。中国人生活在一个虚假的、被谎言编织的世界里，听不到谎言之外的声音。当听到真相时，有些人反倒觉的不顺耳，不能接受了，排斥。一揭露中共罪过，就很反感，认为是在搞什么，不爱国，是反华势力，吃里扒外，甚至有人反问：你是中国人吗？</div></p>
@@ -133,14 +135,14 @@
 <p>这么多的器官从哪里来？法轮功学员！而且这种罪恶行为还在秘密进行！</p>
 <p>2019年6月17日，英国“独立人民法庭”终审判决，中共犯下了反人类罪行，包括谋杀罪和群体灭绝罪。法庭指出，中共“强迫器官摘取”已经在中国大规模地进行了多年，并且法轮功学员一直是器官供应的主要来源之一。</p>
 <p>这场由中共前党魁江泽民下令进行的，由中共政府、军队统一管理，从监狱、法院、医院形成一条龙的秘密大屠杀，是对全人类的犯罪，是人类前所未有的罪恶，冲击着每一个人的良知，挑战着每一个人的道德底线。</div></p>
-<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/nxtx43c6/index.html?p=5f4db524dea8d6a1d35"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.1/czs.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5f5473519e689661938"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.1/czs.jpg" width=640></a>
 <p><h5>“藏字石”崩裂的巨石断面内惊现6个大字“中国共产党亡”。图为贵州省平塘县掌布乡“藏字石”风景区门票图案。</h5></p> 
 <p><strong><div style=<p align="left">
 五、远离中共，走出劫难</strong></div></p>
 <p><div style=<p align="left"></p>
 <p>中共对人类犯下滔天大罪，老天不会放过它。2002年6月，在贵州省平塘县掌布乡发现了2.7亿岁的“藏字石”，五百年前崩裂的巨石断面内惊现六个排列整齐的大字“中国共产党亡”，中国的各路地质专家经实地考察后一致认为，“藏字石”乃天然形成，堪称世界奇观。千百年来的中国，在要出大事之前就一定有奇事发生，老天或以瑞兆示吉，或以凶相警世。今天的“藏字石”是在向人们预示着天机，天意昭然。</p>
 <p>中共恶贯满盈，坏事干尽，老天真要灭中共了。今天的瘟疫很明显是冲着中共而来，病毒直奔亲共国家去感染；死心塌地追随中共的个人也是一样。网上传出一张中共某单位内部统计的2月份死亡名单。名单记录的死亡者中，中共党员占88%。中共党员是高危人群。</div></p>
-<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/nxtx43c6/index.html?p=5f4db524dea8d6a1d35"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.1/zflpz.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5f5473519e689661938"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.1/zflpz.jpg" width=640></a>
 <p><h5>2009年11月21日亚洲法会召开前夕，六千多名亚太地区的法轮功学员再次举办大型排字活动，排出了优美的巨型《转法轮》书籍的外形。（大纪元）</h5></p> 
 <p><div style=<p align="left"></p>
 <p>救赎与毁灭同在。中共在毁人，神佛慈悲于人。</p>
@@ -150,11 +152,11 @@
 <p>危机中，神在最后唤醒人类，给了人选择善与恶的自由意志。中共罪大恶极，天要灭中共，作为中共组织（党团队）成员必然受牵连。只有远离中共，退出中共的一切（党团队）组织，把曾经发过的毒誓抹去，从内心彻底和它切割，相信“法轮大法好，真善忍好”，才能逃过瘟疫劫难。大陆同胞啊，该猛醒了！</div></p>
 <p><div style=<p align="left">责任编辑：高义</div></p>
 
-<p><div align=center><h3><a href="https://s3.ap-southeast-1.amazonaws.com/nxtx43c6/index.html?p=5f4db524dea8d6a1d35&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h3>
+<p><div align=center><h3><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5f5473519e689661938&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h3>
 </p>
 </div>
 
-<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/nxtx43c6/index.html?p=5f4db524dea8d6a1d35"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5f5473519e689661938"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
   
