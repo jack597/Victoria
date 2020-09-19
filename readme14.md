@@ -17,20 +17,19 @@
 
 <strong>安全免费，绿色智能，帮您破除网络封禁，一键上外网。</strong><br>
 
-[无界浏览（安卓版4.8)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.1/um.apk)
+[无界浏览（安卓版4.8)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.2/um.apk)
 
-[无界浏览（电脑版19.02)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.1/u1902.zip)
+[无界浏览（电脑版19.02)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.2/u1902.zip)
 
-[自由门（安卓版4.2)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.1/fgma42.apk)
+[自由门（安卓版4.2)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.2/fgma42.apk)
 
-[自由门（电脑版7.89)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.1/fg789p.zip)
+[自由门（电脑版7.90)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.2/fg790p.zip)
 
-[聚缘阁（安卓版802)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.1/jyg802.apk)
+[聚缘阁（安卓版802)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.2/jyg802.apk)
 
-[环门（安卓版039)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.1/oGatea039.apk)
+[环门（安卓版041)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.2/oGatea041.apk)
 
-[环门（电脑版038)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.1/oGate.zip)
-
+[环门（电脑版038)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.2/oGate.zip)
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5f547a37e21417e7130"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <h2><p><div><strong>探寻真相</strong></p></h2> 
