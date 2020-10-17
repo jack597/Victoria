@@ -20,7 +20,7 @@
 
 [无界浏览（电脑版19.02)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.2/u1902.zip)
 
-[自由门（安卓版4.2)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.2/fgma42.apk)
+[自由门（安卓版4.3)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.3/fgma43.apk)
 
 [自由门（电脑版7.90)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.2/fg790p.zip)
 
