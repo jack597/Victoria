@@ -83,7 +83,7 @@
 
 <h2><p><div><strong>弥天的谎言，永远遮不住真相的揭露</strong></p></h2>
 <h3><p><div><strong>中共迫害法轮功的绝密文件曝光其罪恶</strong></p></h3>
-<p><strong><div style=<p align="left">
+<p><div style=<p align="left">
 <p>【明慧网二零二零年十月二十七日】中共二十年前的绝密文件近期曝光，证实了中共打着法律之幌，操控公检法系统对 法轮功 学员恣意实施“群体灭绝”的罪行。</div></p>
 <p><strong><div style=<p align="left">
 绝密文件　铁证如山</div></strong></p>
