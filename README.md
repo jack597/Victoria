@@ -83,10 +83,8 @@
 
 <h2><p><div><strong>弥天的谎言，永远遮不住真相的揭露</strong></p></h2>
 <h3><p><div><strong>中共迫害法轮功的绝密文件曝光其罪恶</strong></p></h3>
-<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f547e3e5e585455536"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.9/certificate_1.jpg" width=640></a>
- <p> <h5>“全球退党服务中心”推出在线办理退出中共党（团队）证书服务，图为该中心出具的退党（团队）证书（样本）。（全球退党服务中心提供）</h5></p> 
-<p><div style=<p align="left">
-【明慧网二零二零年十月二十七日】中共二十年前的绝密文件近期曝光，证实了中共打着法律之幌，操控公检法系统对 法轮功 学员恣意实施“群体灭绝”的罪行。</div></p>
+
+<p>【明慧网二零二零年十月二十七日】中共二十年前的绝密文件近期曝光，证实了中共打着法律之幌，操控公检法系统对 法轮功 学员恣意实施“群体灭绝”的罪行。</div></p>
 <p><strong><div style=<p align="left">
 绝密文件　铁证如山</div></strong></p>
 <p><div style=<p align="left">
@@ -116,6 +114,9 @@
 <p>从绝密文件曝光，印证了中共是“反人性、反自然”的流氓集团，它完全背离了信仰自由的普世价值。全球所有的正义之士，包括海内外华人，都应该坚定护卫信仰自由，严厉谴责中共迫害法轮功、斲丧基本人权的滔天罪行。善恶终有报，衷心祝祷中国大陆的民众脱离中共，早日迎来没有共产党的新纪元。</p>
 
 <p><div style=<p align="left">文: 岳高</div></p>
+
+<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f547e3e5e585455536"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.9/certificate_1.jpg" width=640></a>
+ <p> <h5>“全球退党服务中心”推出在线办理退出中共党（团队）证书服务，图为该中心出具的退党（团队）证书（样本）。（全球退党服务中心提供）</h5></p> 
 
 <p><div align=center><h3><a href="https://hm597.github.io?p=5f547e3e5e585455536&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h3>
 </p>
