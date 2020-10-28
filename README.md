@@ -1,5 +1,5 @@
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f547e3e5e585455536"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640></a>
-<h3><strong><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f547e3e5e585455536&u=santui" rel="nofollow">“三退，您退了吗？” 点击这里: 退出中共党（团队）</a></strong></h3><br>
+<h3><strong><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f547e3e5e585455536&u=santui" rel="nofollow">“三退，您退了吗？” 点击这里: 退出中共党（团、队）</a></strong></h3><br>
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f547e3e5e585455536"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <div align=center><h3><b><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f547e3e5e585455536">● 滙真网入口1 ● </a></b></h3></div>
@@ -116,9 +116,9 @@
 <p><div style=<p align="left">文: 岳高</div></p>
 
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f547e3e5e585455536&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.9/certificate_1.jpg" width=640></a>
- <p> <h5>“全球退党服务中心”推出在线办理退出中共党（团队）证书服务，图为该中心出具的退党（团队）证书（样本）。（全球退党服务中心提供）</h5></p> 
+ <p> <h5>“全球退党服务中心”推出在线办理退出中共党（团队）证书服务，图为该中心出具的退党（团、队）证书（样本）。（全球退党服务中心提供）</h5></p> 
 
-<p><div align=center><h3><a href="https://hm597.github.io?p=5f547e3e5e585455536&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h3>
+<p><div align=center><h3><a href="https://hm597.github.io?p=5f547e3e5e585455536&u=santui" rel="nofollow">声明退出中共党（团、队）（点击進入）</a></h3>
 </p>
 </div>
 
