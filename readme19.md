@@ -117,7 +117,7 @@
 
 <p><div style=<p align="left">文: 岳高</div></p>
 
-<p><div align=center><h3><a href="https://mqq2.github.io?p=5f9af0299e689691939&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h3>
+<p><div align=center><h2><a href="https://mqq2.github.io?p=5f9af0299e689691939&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h2>
 </p>
 </div>
 
