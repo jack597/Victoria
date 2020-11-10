@@ -103,8 +103,10 @@
 <p><div align=center><h2><a href="https://mqq2.github.io?p=5faa25f4dea8d6a1d31&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h2>
 </p>
 </div>
-<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5faa25f4dea8d6a1d31"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5faa25f4dea8d6a1d31"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a></div>
+
 <h2><p><div><strong>法轮功真相图片展</strong></p></h2>
+
 <div align="center"><a href="https://s3.ap-southeast-2.amazonaws.com/w9vadjt4/index.html?p=5faa25f4dea8d6a1d31&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/8.jpg" width=640></a>
 <div align="center"><a href="https://s3.us-west-2.amazonaws.com/cn3oe3zg/index.html?p=5faa25f4dea8d6a1d31&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/18.jpg" width=640></a>
 <div align="center"><a href="https://s3.ap-southeast-2.amazonaws.com/yk11k9yj/index.html?p=5faa25f4dea8d6a1d31&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/19.jpg" width=640></a>
