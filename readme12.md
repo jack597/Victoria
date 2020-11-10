@@ -103,7 +103,7 @@
 <p><div align=center><h2><a href="https://mqq2.github.io?p=5faa25f4dea8d6a1d31&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h2>
 </p>
 </div>
-<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5faa25f4dea8d6a1d31"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a></div>
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5faa25f4dea8d6a1d31"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <h2><p><div><strong>法轮功真相图片展</strong></p></h2>
 
