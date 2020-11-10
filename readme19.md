@@ -101,10 +101,10 @@
 <p>让我们共同向神祈祷，期盼创世主在危难中早日唤醒人们的正义良知，赋予智慧和能力，护佑美国，护佑世界，让人类走向光明的未来。</p>
 <p>愿创世主保佑美国，让美国再次伟大！</p>
 
-<p><div align=center><h2><a href="https://mqq2.github.io?p=5faa29ce28542158539&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h2>
+<p><div align=center><h2><a href="https://mqq2.github.io?p=5faa2a90dea8d6d1d39&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h2>
 </p>
 </div>
-<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5faa29ce28542158539"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5faa2a90dea8d6d1d39"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <h2><p><div><strong>法轮功真相图片展</strong></p></h2>
 
