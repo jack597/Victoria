@@ -182,10 +182,10 @@
 </p>
 </div>
 
-<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f5cecea5e585455533"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a></div>
+<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f5cecea5e585455533"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
   
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
+<h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
   
 <div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/readme25.md"><img src="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/readme25_qr.jpg" title="分享本平台"></img></a>
 
