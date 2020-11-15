@@ -183,11 +183,9 @@
 <p><div align=center><h2><a href="https://mqq2.github.io?p=5faa2b7b111713e4135&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h2>
 </p>
 </div>
-<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5faa2b7b111713e4135"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
-
-
-
 <div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5f4dafcd91979364935"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+
+
 
 <h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
   
