@@ -204,5 +204,5 @@
 
 <div align=center><h4>请收藏本站网址：https://github.com/ofn1/Victoria/blob/master/README.md</h4></div>
 <div align=center><strong><h3><strong></div>本站短网址：
-<div align=center><h4>：https://git.io/hzhen </h4></div>
+<div align=center><h4>https://git.io/hzhen </h4></div>
 <div align=center><h4>https://cutt.ly/hzhen</h4></div>
