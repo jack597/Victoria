@@ -1,5 +1,5 @@
 <div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5fca3cea5527575d535"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640></a>
-<h3><strong><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5fca3cea5527575d535&u=santui" rel="nofollow">“三退，您退了吗？” 点击这里: 退出中共党（团队）</a></strong></h3><br>
+<h2><strong><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5fca3cea5527575d535&u=santui" rel="nofollow">点击这里: 我要退党团队</a></strong></h2><br>
 <div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5fca3cea5527575d535"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <div align=center><h3><b><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5fca3cea5527575d535">● 滙真网入口1 ● </a></b></h3></div>
@@ -179,7 +179,7 @@
 
 <p>责任编辑：张宪义#</p>
 
-<p><div align=center><h3><a href="https://vk580.github.io?p=5fca3cea5527575d535&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h3>
+<p><div align=center><h2><a href="https://vk580.github.io?p=5fca3cea5527575d535&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h2>
 </p>
 </div>
 
