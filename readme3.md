@@ -83,6 +83,10 @@
 <p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6150.md#1">法律依据</a></p>
 </details>
 
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5fca3cea5527575d535"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+ 
+ <h2><p><div><strong>弥天的谎言 永远遮不住真相的揭露</strong></p></h2> 
+
 <h3><p><div><strong>【特稿】正邪相争 大选分左右 人民选未来</strong></p></h3>
 <p><div style=<p align="left">
 <p>【大纪元2020年11月13日讯】244年前，睿智的美国国父们秉持对神的正信，建立了伟大的美国。4年前，顺天应命的美国总统川普（特朗普）誓言“让美国再次伟大”，并阐明美国伟大的真谛——“不崇拜政府、只崇拜神”。</p>
@@ -179,7 +183,7 @@
 
 <p>责任编辑：张宪义#</p>
 
-<p><div align=center><h2><a href="https://vk580.github.io?p=5fca3cea5527575d535&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h2>
+<p><div align=center><h2><a href="https://vk580.github.io?p=5fca3cea5527575d535&u=santui" rel="nofollow">声明退出中共党、团、队（点击進入）</a></h2>
 </p>
 </div>
 
