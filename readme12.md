@@ -180,7 +180,7 @@
 <p>我们每个人都面对着关乎自己未来的“大选”，都要做出心灵的选择：超越党派、摒弃红魔，分清左右善恶，坚守传统，选择光明。当正义发声、良知觉醒之时，方为“大选”真正尘埃落定之日。</p>
 
 <p>责任编辑：张宪义#</p>
-<p><div align=center><h2><a href="https://mqq2.github.io?p=5faa25f4dea8d6a1d31&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h2>
+<p><div align=center><h2><a href="https://mqq2.github.io?p=5faa25f4dea8d6a1d31&u=santui" rel="nofollow">声明退出中共党、团、队（点击進入）</a></h2>
 </p>
 </div>
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5faa25f4dea8d6a1d31"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
