@@ -1,18 +1,18 @@
-<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5f4dafcd91979364935"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640></a>
-<h3><strong><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5f4dafcd91979364935&u=santui" rel="nofollow">“三退，您退了吗？” 点击这里: 退出中共党（团队）</a></strong></h3><br>
-<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5f4dafcd91979364935"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5fca451251575324535"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640></a>
+<h3><strong><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5fca451251575324535&u=santui" rel="nofollow">“三退，您退了吗？” 点击这里: 退出中共党、团、队</a></strong></h3><br>
+<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5fca451251575324535"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
-<div align=center><h3><b><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5f4dafcd91979364935">● 滙真网入口1 ● </a></b></h3></div>
-<div align=center><h3><b><a href="https://vk580.github.io?p=5f4dafcd91979364935">● 滙真网入口2 ● </a></b></h3></div>
-<div align=center><h3><b><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5f4dafcd91979364935">● 滙真网入口3 ● </a></b></h3></div>
-<div align=center><h3><b><a href="https://s3.ap-southeast-1.amazonaws.com/nxtx43c6/index.html?p=5f4dafcd91979364935">● 滙真网入口4 ● </a></b></h3></div>  
+<div align=center><h3><b><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5fca451251575324535">● 滙真网入口1 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://vk580.github.io?p=5fca451251575324535">● 滙真网入口2 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5fca451251575324535">● 滙真网入口3 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://s3.ap-southeast-1.amazonaws.com/nxtx43c6/index.html?p=5fca451251575324535">● 滙真网入口4 ● </a></b></h3></div>  
 
 
 <div align=center><h3><b><a href="https://gitlab.com/juyuange/2/-/wikis">● 友好链接入口1 ● </a></b></h3></div>
 
 <div align=center><h3><b><a href="https://github.com/ofatuf344/www/blob/master/README.md">● 友好链接入口2 ● </a></b></h3></div>
 
-<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5f4dafcd91979364935"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5fca451251575324535"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <h2><p><strong>免费翻墙软件下载</strong></p></h2>
 
@@ -32,7 +32,7 @@
 
 [环门（电脑版038)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.4/oGate.zip)
 
-<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5f4dafcd91979364935"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5fca451251575324535"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <h2><p><div><strong>探寻真相</strong></p></h2> 
  
@@ -82,7 +82,7 @@
 <p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6149.md#1">各界评论</a></p>
 <p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6150.md#1">法律依据</a></p>
 </details>
-<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5f4dafcd91979364935"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5fca451251575324535"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 <h2><p><div><strong>弥天的谎言 永远遮不住真相的揭露</strong></p></h2>
 <h3><p><div><strong>【特稿】正邪相争 大选分左右 人民选未来</strong></p></h3>
 <p><div style=<p align="left">
@@ -180,10 +180,10 @@
 
 <p>责任编辑：张宪义#</p>
 
-<p><div align=center><h2><a href="https://mqq2.github.io?p=5faa2b7b111713e4135&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h2>
+<p><div align=center><h2><a href="https://mqq2.github.io?p=5faa2b7b111713e4135&u=santui" rel="nofollow">声明退出中共党、团、队（点击進入）</a></h2>
 </p>
 </div>
-<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5f4dafcd91979364935"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5fca451251575324535"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 
 
