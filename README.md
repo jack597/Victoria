@@ -26,7 +26,7 @@
 
 [聚缘阁（安卓版802)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.5/jyg802.apk)
 
-[环门（安卓版042)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.5/oGatea041.apk)
+[环门（安卓版042)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.5/oGatea042.apk)
 
 [环门（电脑版038)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.5/oGate.zip)
 
