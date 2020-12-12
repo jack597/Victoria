@@ -81,7 +81,7 @@
 <p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6149.md#1">各界评论</a></p>
 <p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6150.md#1">法律依据</a></p>
 </details>
-<div align="center"><a href="https://s3.ap-northeast-2.amazonaws.com/gvzswkwq/index.html?p=5fd4e4c227525624530"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.9/certificate_1.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5fd4e4c227525624530"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 <h2><p><div><strong>弥天的谎言 永远遮不住真相的揭露</strong></p></h2>
 <h3><p><div><strong>【特稿】正邪相争 大选分左右 人民选未来</strong></p></h3>
 <p><div style=<p align="left">
