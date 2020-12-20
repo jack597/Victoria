@@ -81,7 +81,7 @@
 <p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6150.md#1">法律依据</a></p>
 </details>
 
-<h2><p><div><strong>弥天的谎言 永远遮不住真相的揭露</strong></p></h2>
+
 <h3><p><div><strong>【特稿】正邪相争 大选分左右 人民选未来</strong></p></h3>
 <p><div style=<p align="left">
 <p>【大纪元2020年11月13日讯】244年前，睿智的美国国父们秉持对神的正信，建立了伟大的美国。4年前，顺天应命的美国总统川普（特朗普）誓言“让美国再次伟大”，并阐明美国伟大的真谛——“不崇拜政府、只崇拜神”。</p>
@@ -182,6 +182,9 @@
 </p>
 </div>
 
+<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5fb9e2419e989495930"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+ 
+<h2><p><div><strong>弥天的谎言 永远遮不住真相的揭露</strong></p></h2>
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5fb9e2419e989495930&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/8.jpg" width=640></a>
 <div align="center"><a href="https://s3.us-west-2.amazonaws.com/cn3oe3zg/index.html?p=5fb9e2419e989495930&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/18.jpg" width=640></a>
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/dbjrh6j2/index.html?p=5fb9e2419e989495930&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/19.jpg" width=640></a>
