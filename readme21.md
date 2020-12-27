@@ -144,6 +144,6 @@
 
 <div align=center><h4>请收藏本站网址：https://github.com/ofn1/Victoria/blob/master/readme21.md</h4></div>
 <div align=center><strong><h3><strong></div>本站短网址：
-<div align=center><h4>https://is.gd/ipkrut</h4></div>
-<div align=center><h4>https://git.io/ipkrut </h4></div>
-<div align=center><h4>https://cutt.ly/ipkrut</h4></div>
+<div align=center><h3>https://is.gd/ipkrut</h3></div>
+<div align=center><h3>https://git.io/ipkrut </h3></div>
+<div align=center><h3>https://cutt.ly/ipkrut</h3></div>
