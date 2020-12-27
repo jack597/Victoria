@@ -1,16 +1,16 @@
-<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f5cecea5e585455533"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640></a>
-<h3><strong><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f5cecea5e585455533&u=santui" rel="nofollow">“三退，您退了吗？” 点击这里: 退出中共党（团队）</a></strong></h3><br>
-<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f5cecea5e585455533"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5fe822065e585455532"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640></a>
+<h2><strong><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5fe822065e585455532&u=santui" rel="nofollow">点击这里: 我要退党团队</a></strong></h2><br>
+<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5fe822065e585455532"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
-<div align=center><h3><b><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f5cecea5e585455533">● 滙真网入口1 ● </a></b></h3></div>
-<div align=center><h3><b><a href="https://hm597.github.io?p=5f5cecea5e585455533">● 滙真网入口2 ● </a></b></h3></div>
-<div align=center><h3><b><a href="https://s3.ap-northeast-1.amazonaws.com/8kqxgvu5/index.html?p=5f5cecea5e585455533">● 滙真网入口3 ● </a></b></h3></div>
- <div align=center><h3><b><a href="https://s3.us-west-2.amazonaws.com/cn3oe3zg/index.html?p=5f5cecea5e585455533">● 滙真网入口4 ● </a></b></h3></div> 
+<div align=center><h3><b><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5fe822065e585455532">● 滙真网入口1 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://hm597.github.io?p=5fe822065e585455532">● 滙真网入口2 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://s3.ap-northeast-1.amazonaws.com/8kqxgvu5/index.html?p=5fe822065e585455532">● 滙真网入口3 ● </a></b></h3></div>
+ <div align=center><h3><b><a href="https://s3.us-west-2.amazonaws.com/cn3oe3zg/index.html?p=5fe822065e585455532">● 滙真网入口4 ● </a></b></h3></div> 
 
 <div align=center><h3><b><a href="https://gitlab.com/juyuange/2/-/wikis">● 友好链接入口1 ● </a></b></h3></div>
 <div align=center><h3><b><a href="https://github.com/ofatuf344/www/blob/master/README.md">● 友好链接入口2 ● </a></b></h3></div>
 
-<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f5cecea5e585455533"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5fe822065e585455532"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <h2><p><strong>免费翻墙软件下载</strong></p></h2>
 
@@ -30,7 +30,7 @@
 
 [环门（电脑版038)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.6/oGate.zip)
 
-<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f5cecea5e585455533"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5fe822065e585455532"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <h2><p><div><strong>探寻真相</strong></p></h2> 
  
@@ -80,117 +80,68 @@
 <p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6149.md#1">各界评论</a></p>
 <p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6150.md#1">法律依据</a></p>
 </details>
-<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f5cecea5e585455533"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a></div>
 
-<h2><p><div><strong>弥天的谎言 永远遮不住真相的揭露</strong></p></h2> 
-<h3><p><div><strong>【特稿】正邪相争 大选分左右 人民选未来</strong></p></h3>
+<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5fe822065e585455532"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<h2><p><div><strong>弥天的谎言 永远遮不住真相的揭露</strong></p></h2>
+<div align="center"><div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5fe822065e585455532"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.9/certificate_1.jpg" width=640></a>
+ <p><h5> “全球退党服务中心”推出在线办理退出中共党（团队）证书服务，图为该中心出具的退党（团队）证书（样本）。（全球退党服务中心提供）</h5></p>
+<h3><p><div><strong>李铭：重锤该清醒 退党莫迟疑</strong></p></h3>
 <p><div style=<p align="left">
-<p>【大纪元2020年11月13日讯】244年前，睿智的美国国父们秉持对神的正信，建立了伟大的美国。4年前，顺天应命的美国总统川普（特朗普）誓言“让美国再次伟大”，并阐明美国伟大的真谛——“不崇拜政府、只崇拜神”。</p>
+<p>对许多中国人来说，“加入中国共产党”就像取得了一张特别通行证，从此升学或谋职将可一帆风顺，平步青云可期、升官发财有望。近三个月来，美国政府连续出拳，招招直攻红蛇七寸。那些以入党自豪，或对中共抱持幻想者，重锤之下都应该清醒了。</div></p>
 
-<p>世人皆知，美国能够引领自由世界近百年的根由，就是先哲们奠定的《独立宣言》、《人权法案》等立国之本——“以下真理不言而喻：人人生而平等，造物主赋予他们不可剥夺的权利……”</p>
-
-<p>一切人权都是造物主（神）赋予人类的权利。捍卫人权，同样是神赋予人类的使命，这也正是美国能享有自由、民主和富强以及美国之所以成为“美国”的根本所在。</p>
-
-<p>然而今天，极左派及其背后的共产红魔正试图利用谎言和欺诈，“窃取”美国大选，剥夺人民的权利和自由，左右神为人类选定的美国总统。这不但亵渎了人对神的正信，令美国蒙羞，同时也将美国人民和全人类拖向危险的边缘。</p>
-
-
-<p><strong><div style=<p align="left">
-选举舞弊 祸乱美国</div></strong></p>
 <p><div style=<p align="left">
-看看曾经用公正和自由领导世界的民主圣地美国，在最神圣的总统大选中，如今发生了什么。</p>
+二零二零年十月二日，美国公民及移民服务局（USCIS）发布新措施，禁止中国共产党及其附属组织的成员移民美国。中共党员即使已经身在美国，仍无法通过绿卡申请。</p>
+<p>十二月二日，美国政府公布新规定，将中共党员与其直系亲属的旅行签证效期限制在单月单次入境，中共党员签证的有效期限从十年缩短到剩一个月，立即生效。</p>
+<p>十二月二十一日，美国国务卿蓬佩奥（Michael Pompeo）发表声明，针对参与迫害信仰自由的中共官员实施进一步签证限制，这些官员的家庭成员签证也将受到额外限制。“此举表明，美国政府决心要让中共对它镇压中国人民承担责任。美国明确指出，不欢迎此类侵犯人权的肇事者”。蓬佩奥强调，美国与受迫害的人站在一起。“我们呼吁立即释放他们，并敦促中共根据《世界人权宣言》，尊重中国人民应该享有的人权和基本自由”。</p>
+<p><div style=<p align="left"></p>
+<p>美国相继出台了移民与旅行的新政策，这三波新令直接冲击了中共的官二代、商二代、小粉红与共青团成员等，可能影响约2.7亿中国人。尤其，新措施明显针对戕害人权、迫害信仰自由的中共高层与帮凶从犯，更有效的打击恶徒。如何退出中共、避免被美国制裁与连累家属，成为很多中国民众的严肃课题与迫切危机。</p>
+<p>七十一年来，中共不断的用“无神论”与“反华势力”等邪说，对中国民众洗脑荼毒，致使许多人相信了“爱国必须爱党”等谬论，沦为中共绑架的人质，被它恣意宰制而不自觉。</p>
+<p>中国共产党为了维护它的独裁政权，对群众的宣传中经常灌输“爱党爱国”的口号，在它政权遭遇危机时往往高呼“亡党亡国”，这是中共狡诈阴狠的欺骗伎俩，妄图将共产党和中国绑在一起。</p>
+<p><div style=<p align="left"></p>
+<p>中共一贯的党、国不分，故意混淆了党、国的概念和界限，使得许多中国人“条件反射”的把“党”和“国”混为一谈。当今西方国家一旦批评中国的人权状况、批评中共的专制暴政时，中共就一概扣上“反华势力” 的帽子，借机模糊“反共”和“反华”的分野，也就是混淆了“爱党”和“爱国”的概念。</p>
+<p>被中共长期洗脑的人会说：没有共产党，哪有新中国。自苏联、东欧解体后，现在还坚持共产主义的国家只剩中国、北朝鲜、越南和古巴而已，这些国家都与贫穷、集权、迫害紧密联系在一起；而抛弃了共产主义的东欧，很快走向蓬勃发展，人民生活水准普遍提高，鲜明对比印证了“没有共产党，才有新中国”。</p>
+<p>今年七月二十三日，美国国务卿蓬佩奥呼吁全世界联合抗共，并揭穿了中共声称它代表14亿人民这一谎言。他承诺，美国不会再任由中共政权绑架中国人民；美国将带领自由世界，坚定的与中国人民站在一起，共同击溃中共的独裁暴政。美国三项新的禁令措施，沿用了“中共不等于中国”框架，严格区别“中共”与“中国人民”。</p>
+<p>二零零四年十一月，《九评共产党》一书问世，指明了共产党是邪教、是反宇宙的力量，中共是危害全人类的邪灵，它的根本目的是毁灭人类；只要坚守良知善念，顺应天意，神佛就会帮助世人清除红魔。</p>
+<p>越来越多的海内外华人在认清中共的邪恶本质后，纷纷表态退党，开启了划时代意义的精神觉醒运动，迄今在退党网站公开发表声明退出中共（党、团、队组织）的人数已逾三亿七千万人。</p>
+<p>由总部在美国的“全球退出中共服务中心”所颁发的《退党（团、队）证书》，做为办理身份的法律支持文件，已经得到美国和许多民主国家的认可。今年八月十八日起，更以“在线办理退党证书”的服务，满足越来越多的华人民众退党的需求，可在“天灭中共”、清算其党徒时，做为自身清白、免受牵连的见证。</p>
 
-<p>左派操控的主流媒体不但用脱离现实的大选民调惑乱人心、对民主党候选人拜登家族的腐败和亲共丑闻过滤封杀、在大选投票过程中发布歪曲事实的报导，甚至在大选舞弊被曝光、选举结果未有定论时，取代宪法和民意，自行宣布拜登胜选。</p>
+<p>迄今，至少有28个国家已经制定或准备制定类似于美国的《全球马格尼茨基人权问责法》，对迫害人权者拒发签证、冻结资产。值此国际自由体系的联盟，正全面抗击中共之际，预期美国针对中共的各项措施，还将逐步收紧。眼下正是弃暗投明的绝佳时机，一旦退出中共，可确保日后平安，避免成为中共沦亡的陪葬品。</p>
 
-<p>同样可怕的，还有被曝光的大规模选举欺诈和舞弊行为：投票当晚在川普选票领先时，关键州先是莫名停止计票，然后再涌入几乎百分百的拜登选票；投票中心违法阻挡观察员监督，遮掩本应公开的点票工作，甚至在法院下令的情况下共和党监票员仍无法近距离观看计票过程；仅内华达一州就向司法部检举了逾三千起选民舞弊事件；多地自动投票系统被曝光存在漏洞，故意将川普选票转给拜登；全美各地不计其数的邮寄选票被选民揭露为欺诈，其中有重复的、冒名顶替的，甚至过世多年的选民投票……据悉目前已有成千上万的证人愿意宣誓作证。</p>
+<p>历史证明，共产主义带给人类的，永远是战乱、暴虐、贫穷与独裁。中共极权专制的恐怖统治，曾经造成八千万中国人的非自然死亡；现在它隐匿真相、导致疫情肆虐，又觊觎称霸全球，使世界上七十亿人都成为中共的隐性受害者。其实，在中国大陆多数人已不再相信共产主义那一套骗人的鬼话，只是有些人的良知不能幡然觉醒而已。</p>
 
-<p>泱泱大国，舞弊乱象，令人匪夷所思，不但重创了自由世界引以为傲的宪政民主、践踏了人类文明和道德底线，更预兆着美国面临危急的未来：左派代理人倘若真的“窃取”了美国大选，美国和世界将被邪恶社会主义侵蚀并拖入深渊。</p>
+<p>近年中共贪官外逃、国库空虚，早已显露衰败之象。“灭中共”是天意难违，“反共产”是人心归向。中国人必须主动脱离中共、远离邪恶，彻底与这个专给人类带来无穷灾难的共产邪灵划清界限，澎湃的退党大潮将让久遭中共箝制的人民获得拯救与重享自由。</p>
 
-<p><strong><div style=<p align="left">大选开启正邪之战 川普战红魔</div></strong></p>
-<p><div style=<p align="left">
-这一切，就如同“九评编辑部”社论《魔鬼在统治着我们的世界》中所言：“魔鬼已经占领了我们的世界”，“就连被视为自由世界龙头的美国也在共产邪灵的进攻下近乎全面沦陷”。</p>
+<p>值此汇聚全球力量的关键时刻，善恶系于一念之间。可贵的中国人民，不该沦为中共的殉葬品；彻底与红魔切割，是唯一自救保身之道；只有猛然清醒，方可摆脱邪灵的箝制。广大的民众须做出明智的抉择，及时退出中共，迈向没有共产党的康庄坦途。</p>
 
-<p>社论指出“这个魔鬼就是共产主义邪灵”，“这个邪灵的终极目的就是要毁灭人类”。它会冠以社会主义、进步主义、自由派、新马克思主义、各种左翼党派等令人迷惑的名称，打着“全球化”、“政治正确”等貌似正义的旗帜，以民主、平等、社会公正等口号渗入到教育、媒体、艺术、法律等诸多领域，“不择手段地摧毁传统的一切，包括信仰、宗教、道德、文化、家庭、艺术、教育、法律等，让人在道德沦丧中堕入万劫不复的深渊。”</p>
+<p>责任编辑：高义</p>
 
-<p>2020美国大选中的舞弊乱象，意味着“共产邪灵毁灭人类的阴谋几乎得逞了”。川普总统在大选中已经预警：拜登若当选，中共将拥有美国。</p>
-
-<p>看看美国民主党正副总统候选人的观点和背景，看看主流媒体、科技巨头和大财团等左派势力在选举中的表现以及与中共勾连的过往，再看看某些国家领导人在美国大选中的站位，不难发现，无论打着何种借口或主张，左派要实施的就是社会主义（共产主义），极左派从认识到行为正蜕变得与中共一样。</p>
-
-<p>川普总统自2017年就任以来，顶着美国主流媒体的诋毁，冲破政商文教各界黑暗势力的掣肘，不仅为美国创造了一个又一个的经济奇迹，更截窒了自上世纪以来美国向左派社会主义堕落的下滑趋势，引领美国人民恢复传统道德、坚守普世价值。</p>
-
-<p>唐纳德‧川普不但是第一个在联合国主办宗教自由会议的美国总统，也是30年来首个将保护宗教自由真正贯彻到政府层面的美国总统。他是自里根总统以来第一位同时也是唯一一位认清共产主义邪恶并开始反制、清剿中共的美国总统。</p>
-
-<p>他领导美国改变了30年来对中共的绥靖政策，在世界范围内敲响了对中共的警钟。在大选之前，川普总统正领导自由世界发起围剿中共的总攻，让共产邪恶在中国人民和国际社会面前无所遁形。</p>
-
-<p>即便是大选发生舞弊后，面对左派发动全美甚至全球新闻机器以及美国行政、司法系统中黑暗势力展开的凶猛狙击，川普总统没有丝毫退缩和动摇。</p>
-
-<p>他在有舞弊行为的各州发起法律挑战，同时加大对中共的清剿力度，力助中国人民推倒中共网络高墙。</p>
-
-<p>美国大选并未结束，川普总统正在与左派势力和中共红魔进行激战。</p>
-
-<p><strong><div style=<p align="left">分清“左右”与善恶 选择未来</div></strong></p>
-<p><div style=<p align="left">
-事实上，当今的“左右”之争，已超越了政党甚至意识形态，演变为善恶正邪之战。</p>
-
-<p>如今所谓的极左派，已被共产主义渗透，在背后操控的是共产邪灵和中共红魔。被称为“右派”的，其实是要求回归传统道德、坚守普世价值和对神的正信的社会力量。</p>
-
-<p>越来越多的人意识到，2020美国大选不是两党之争，不是川普和拜登之争，而是传统价值与社会主义之争，“是正邪大战，是神魔之争”。</p>
-
-<p>在这次大选中，川普总统对抗的不仅有腐败的政客、舞弊的政府官员、操控社会舆论的“主流”媒体，还包括被邪恶共产主义腐蚀了的文化教育、科学等各界左派势力甚至一些盟国政府。</p>
-
-<p>不过，他并不是孤军奋战。川普不但有坚守传统价值的政治盟友支持，也有秉持传统和新闻原则的新媒体助力，还有全美和各国坚信普世价值的亿万民众祈福和支援。</p>
-
-<p>美国联邦选举委员会主席已经表态，确信大选存在欺诈。</p>
-
-<p>美国副总统彭斯、国务卿蓬佩奥和众多重量级国会议员、联邦和州政府高官都发声反对大选欺诈。</p>
-
-<p>美国社会众多知名律师、明星和各界名流纷纷发声谴责大选舞弊，并直指左派会将美国带入社会主义的危险之中。</p>
-
-<p>国际社会也有不少国家并不承认拜登胜选，其中墨西哥等国政府领导人指出，美国大选未有定论，不宜提前祝贺胜选。</p>
-
-<p>而在民间，在正义媒体冲破黑暗的报导中，不少民众发出了心中的呐喊，“他（川普）是雄狮，为我们而战。”</p>
-
-<p>2019年川普总统启动贸易战反击中共经济渗透时，曾直言“我是天选之人，所以我要挑战中国（中共）”。</p>
-
-<p>事实证明，他不仅在对抗中共，为美国人民而战，同时也是在为全世界坚守传统和道德的人而战。</p>
-
-<p>“九评编辑部”社论《共产主义的终极目的》指出：“慈悲的神没有忘记人。在魔鬼策划阴谋的时候，神也安排了在危机中最后唤醒人类。”</p>
-
-<p>在这次美国大选中，川普真正对抗的，并非美国民主党人或被共产意识形态蒙蔽的左派民众。他肩负着神赋予的“回归传统，解体中共”的历史使命。他所对抗的，实质是左派势力背后的共产邪灵，是中共红魔，那是美国真正的敌人。</p>
-
-<p>而渗透美国的左派势力在大选中企图偷窃的，也不仅是一个总统职位和权力，更是人民的选举、言论、宗教自由等天赋人权，以及美国人和全人类的未来。</p>
-
-<p>因为左派主张并欲在美国和全球实施的社会主义真正带给人的，不是那些似是而非的口号或不可持续的高福利，而是在这次大选中暴露出来的谎言、欺诈、腐败和强权，以及世界几十亿人已经历过的噩梦与血泪苦难。</p>
-
-<p>在一百多年的共产主义红色运动中，世界已经见证了更动听的乌托邦谎言，同时也见证了更邪恶的恐怖、迫害、杀戮与道德堕落，并伴随着贫穷、饥荒和动乱。共产邪恶主义曾统治蹂躏了世界上三分之一的人口，破坏了灿烂的传统文化与优秀道德，给人类带来空前的灾难，尤以中共为甚。</p>
-
-<p>前东欧国家纷纷抛弃了共产主义，全世界的人们纷纷来到美国追寻梦想与自由，而极左派及其背后红魔，就是要重新把人们带向社会主义，套上枷锁，走向毁灭的命运。</p>
-
-<p>大纪元社论指出：“神一定会战胜魔鬼，而我们选择站在哪一边却决定着我们生命永远的归宿。”</p>
-
-<p>这次的美国大选，好比一面无远弗届、无所遗漏的照妖镜，直击心灵，将每个人都照射进来，令深陷左右之争的各国民众、政府、组织都不得不正视、思考，并做出选择。</p>
-
-<p>天意昭昭，天人相应。美国大选投票当日起，紧随世界各国对大选做出不同的选择，由中共放纵而扩散全球的新冠肺炎（中共病毒）疫情也出现突变，部分国家单日新增病例激增。投票日爆发大规模舞弊后，第二天美国新增病例冲破10万例，并连创新高，至今居高不下。</p>
-
-<p>红魔肆虐，大疫临头，此诚危难关头。大纪元特稿曾指出：中共病毒是针对共产党而来，大疫也将因为人们对共产党的态度而改变。</p>
-
-<p>适逢大选的紧要时刻，任何媒体、法官、政府官员、社会大众或身陷左右之争的当事人，在面对选举欺诈和舞弊时，都有机会遵从良知，讲出真相，展现道德勇气，改变危局。因为面对邪恶中共和共产红魔的威胁，人人都可能成为受害者，从人祸到天灾，无人可以幸免。</p>
-
-<p>我们每个人都面对着关乎自己未来的“大选”，都要做出心灵的选择：超越党派、摒弃红魔，分清左右善恶，坚守传统，选择光明。当正义发声、良知觉醒之时，方为“大选”真正尘埃落定之日。</p>
-
-<p>责任编辑：张宪义#</p>
-<p><div align=center><h3><a href="https://hm597.github.io?p=5f5cecea5e585455533&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h3>
+<p><div align=center><h2><a href="https://hm597.github.io?p=5fe822065e585455532&u=santui" rel="nofollow">声明退出中共党（团、队）（点击進入）</a></h2>
 </p>
 </div>
 
-<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5f5cecea5e585455533"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5fe822065e585455532&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/8.jpg" width=640></a>
+<div align="center"><a href="https://s3.us-west-2.amazonaws.com/cn3oe3zg/index.html?p=5fe822065e585455532&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/18.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/dbjrh6j2/index.html?p=5fe822065e585455532&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/19.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/jxsjfffm/index.html?p=5fe822065e585455532&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/20.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5fe822065e585455532&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/21.jpg" width=640></a>
+ <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5fe822065e585455532&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/22.jpg" width=640></a>
+ <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5fe822065e585455532&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/23.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5fe822065e585455532&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/26.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5fe822065e585455532&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/27.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5fe822065e585455532&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/28.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5fe822065e585455532&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/35.jpg" width=640></a>
+ <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5fe822065e585455532&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/38.jpg" width=640></a>
+ 
+<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5fe822065e585455532"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a></div>
 
   
-<h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
+<div align="center"><h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
   
-<div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/readme25.md"><img src="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/readme25_qr.jpg" title="分享本平台"></img></a>
+
+ <div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/readme25.md"><img src="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/readme25_qr.jpg" title="分享本平台"></img></a>
 
 <div align=center><h4>请收藏本站网址：https://github.com/ofn1/Victoria/blob/master/readme25.md</h4></div>
 <div align=center><strong><h3><strong></div>本站短网址：
-<div align=center><h4>https://is.gd/zhencj </h4></div>
-<div align=center><h4>https://git.io/zhencj </h4></div>
-<div align=center><h4>https://cutt.ly/zhencj</h4></div>
+<div align=center><h3>https://is.gd/zhencj </h3></div>
+<div align=center><h3>https://git.io/zhencj </h3></div>
+<div align=center><h3>https://cutt.ly/zhencj</h3></div>
