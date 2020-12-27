@@ -86,7 +86,7 @@
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5fe820a8a7d2d6a4d39"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <h2><p><div><strong>弥天的谎言 永远遮不住真相的揭露</strong></p></h2>
-<div align="center"><div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5fe8201227525624530"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.9/certificate_1.jpg" width=640></a>
+<div align="center"><div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5fe820a8a7d2d6a4d39"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.9/certificate_1.jpg" width=640></a>
  <p><h5> “全球退党服务中心”推出在线办理退出中共党（团队）证书服务，图为该中心出具的退党（团队）证书（样本）。（全球退党服务中心提供）</h5></p>
 <h3><p><div><strong>李铭：重锤该清醒 退党莫迟疑</strong></p></h3>
 <p><div style=<p align="left">
