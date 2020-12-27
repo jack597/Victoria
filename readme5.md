@@ -1,38 +1,37 @@
-<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5fca451251575324535"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640></a>
-<h2><strong><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5fca451251575324535&u=santui" rel="nofollow">点击这里: 我要退党团队</a></strong></h2><br>
-<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5fca451251575324535"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5fe803bcd1d7d3a4d33"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640></a>
+<h2><strong><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5fe803bcd1d7d3a4d33&u=santui" rel="nofollow">点击这里: 我要退党团队</a></strong></h2><br>
+<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5fe803bcd1d7d3a4d33"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
-<div align=center><h3><b><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5fca451251575324535">● 滙真网入口1 ● </a></b></h3></div>
-<div align=center><h3><b><a href="https://vk580.github.io?p=5fca451251575324535">● 滙真网入口2 ● </a></b></h3></div>
-<div align=center><h3><b><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5fca451251575324535">● 滙真网入口3 ● </a></b></h3></div>
-<div align=center><h3><b><a href="https://s3.ap-southeast-1.amazonaws.com/nxtx43c6/index.html?p=5fca451251575324535">● 滙真网入口4 ● </a></b></h3></div>  
+<div align=center><h3><b><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5fe803bcd1d7d3a4d33">● 滙真网入口1 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://vk580.github.io?p=5fe803bcd1d7d3a4d33">● 滙真网入口2 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5fe803bcd1d7d3a4d33">● 滙真网入口3 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://s3.ap-southeast-1.amazonaws.com/nxtx43c6/index.html?p=5fe803bcd1d7d3a4d33">● 滙真网入口4 ● </a></b></h3></div>  
 
 
 <div align=center><h3><b><a href="https://gitlab.com/juyuange/2/-/wikis">● 友好链接入口1 ● </a></b></h3></div>
 
 <div align=center><h3><b><a href="https://github.com/ofatuf344/www/blob/master/README.md">● 友好链接入口2 ● </a></b></h3></div>
 
-<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5fca451251575324535"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5fe803bcd1d7d3a4d33"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <h2><p><strong>免费翻墙软件下载</strong></p></h2>
 
 <strong>安全免费，绿色智能，帮您破除网络封禁，一键上外网。</strong><br>
 
-[无界浏览（安卓版4.8)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.5/um.apk)
+[无界浏览（安卓版4.9)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.6/um4.9.apk)
 
-[无界浏览（电脑版19.02)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.5/u1902.zip)
+[无界浏览（电脑版19.02)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.6/u1902.zip)
 
-[自由门（安卓版4.3)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.5/fgma43.apk)
+[自由门（安卓版4.3)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.6/fgma43.apk)
 
-[自由门（电脑版7.91)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.5/fg791p.zip)
+[自由门（电脑版7.91)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.6/fg791p.zip)
 
-[聚缘阁（安卓版802)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.5/jyg802.apk)
+[聚缘阁（安卓版802)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.6/jyg802.apk)
 
-[环门（安卓版042)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.5/oGatea042.apk)
+[环门（安卓版042)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.6/oGatea042.apk)
 
-[环门（电脑版038)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.5/oGate.zip)
-
-<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5fca451251575324535"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+[环门（电脑版038)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.6/oGate.zip)
+<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5fe803bcd1d7d3a4d33"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <h2><p><div><strong>探寻真相</strong></p></h2> 
  
@@ -82,7 +81,7 @@
 <p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6149.md#1">各界评论</a></p>
 <p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6150.md#1">法律依据</a></p>
 </details>
-<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5fca451251575324535"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5fe803bcd1d7d3a4d33"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 <h2><p><div><strong>弥天的谎言 永远遮不住真相的揭露</strong></p></h2>
 <h3><p><div><strong>【特稿】正邪相争 大选分左右 人民选未来</strong></p></h3>
 <p><div style=<p align="left">
@@ -180,10 +179,10 @@
 
 <p>责任编辑：张宪义#</p>
 
-<p><div align=center><h2><a href="https://vk580.github.io?p=5fca451251575324535&u=santui" rel="nofollow">声明退出中共党、团、队（点击進入）</a></h2>
+<p><div align=center><h2><a href="https://vk580.github.io?p=5fe803bcd1d7d3a4d33&u=santui" rel="nofollow">声明退出中共党、团、队（点击進入）</a></h2>
 </p>
 </div>
-<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5fca451251575324535"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=5fe803bcd1d7d3a4d33"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 
 
