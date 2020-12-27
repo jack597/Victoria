@@ -86,6 +86,8 @@
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=5fe8043a27285e55535"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
  
  <h2><p><div><strong>弥天的谎言 永远遮不住真相的揭露</strong></p></h2> 
+ <div align="center"><div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5fe8043a27285e55535"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.9/certificate_1.jpg" width=640></a>
+ <p><h5> “全球退党服务中心”推出在线办理退出中共党（团队）证书服务，图为该中心出具的退党（团队）证书（样本）。（全球退党服务中心提供）</h5></p>
 <h3><p><div><strong>李铭：重锤该清醒 退党莫迟疑</strong></p></h3>
 <p><div style=<p align="left">
 <p>对许多中国人来说，“加入中国共产党”就像取得了一张特别通行证，从此升学或谋职将可一帆风顺，平步青云可期、升官发财有望。近三个月来，美国政府连续出拳，招招直攻红蛇七寸。那些以入党自豪，或对中共抱持幻想者，重锤之下都应该清醒了。</div></p>
@@ -128,6 +130,6 @@
 
 <div align=center><h4>请收藏本站网址：https://github.com/ofn1/Victoria/blob/master/readme6.md</h4></div>
 <div align=center><strong><h3><strong></div>本站短网址：
-<div align=center><h4>https://is.gd/xlmjj </h4></div>
-<div align=center><h4>https://git.io/xlmjj </h4></div>
-<div align=center><h4>https://cutt.ly/xlmjj </h4></div>
+<div align=center><h3>https://is.gd/xlmjj </h3></div>
+<div align=center><h3>https://git.io/xlmjj </h3></div>
+<div align=center><h3>https://cutt.ly/xlmjj </h3></div>
