@@ -117,7 +117,7 @@
 
 <p>责任编辑：高义</p>
 
-<p><div align=center><h3><a href="hhttps://anna795.github.io?p=60031a7d61969767935&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h3>
+<p><div align=center><h3><a href="https://anna795.github.io?p=60031a7d61969767935&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h3>
 </p>
 </div>
 <div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=60031a7d61969767935"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
