@@ -117,7 +117,7 @@
 
 <p>责任编辑：高义</p>
 
-<p><div align=center><h2><a href="https://hm597.github.io?p=5fe822065e585455532&u=santui" rel="nofollow">声明退出中共党（团、队）（点击進入）</a></h2>
+<p><div align=center><h2><a href="https://hm597.github.io?p=5fe822065e585455532&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h2>
 </p>
 </div>
 
