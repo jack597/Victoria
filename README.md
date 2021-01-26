@@ -83,7 +83,7 @@
 
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=5fe822065e585455532"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 <h2><p><div><strong>弥天的谎言 永远遮不住真相的揭露</strong></p></h2>
-<div align="center"><div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5fe822065e585455532">
+<div align="center"><div align="center">
 <h3><p><div><strong>李辰：伪火与瘟疫</strong></p></h3>
 <p><div style=<p align="left">
 <p>公元64年，罗马国王尼禄派人纵火，嫁祸基督徒。大批基督徒因此被杀，或被投入斗兽场，遭猛兽撕裂。尼禄还下令将基督徒与干草捆在一起，做成火炬，夜间排绑在花园中点燃照明。</div></p>
