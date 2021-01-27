@@ -192,5 +192,5 @@
 <div align=center><strong><h3><strong></div>本站短网址：
 <div align=center><h3>https://is.gd/sdzft </h3></div>
 <div align=center><h3>https://git.io/sdzft</h3</div>
-<div align=center><h3>https://cutt.ly/sdzft</h3></div>
+<div align=center><h4>https://cutt.ly/sdzft</h4></div>
 
