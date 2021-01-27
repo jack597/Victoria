@@ -1,20 +1,22 @@
-<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6011868221565727539"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640" width=640></a>
-<h3><strong><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6011868221565727539&u=santui" rel="nofollow">“三退，您退了吗？” 点击这里: 退出中共党（/团/队）</a></strong></h3><br>
- <div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6011868221565727539"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
-<div align=center><h3><b><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6011868221565727539">● 滙真网入口1 ● </a></b></h3></div>
-<div align=center><h3><b><a href="https://anna795.github.io?p=6011868221565727539">● 滙真网入口2 ● </a></b></h3></div>
-<div align=center><h3><b><a href="https://s3.eu-central-1.amazonaws.com/btyzvcva/index.html?p=6011868221565727539">● 滙真网入口3 ● </a></b></h3></div>
-<div align=center><h3><b><a href="https://s3.ap-northeast-2.amazonaws.com/uwqvhhj8/index.html?p=6011868221565727539">● 滙真网入口4 ● </a></b></h3></div>  
+<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=6011856e5556545e530"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640></a>
+<h2><strong><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=6011856e5556545e530&u=santui" rel="nofollow"> 点击这里: 我要退党团队</a></strong></h2><br>
+<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=6011856e5556545e530"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
-<div align=center><h3><b><a href="https://github.com/gofanben/gm/blob/master/swsp.md">● 友好链接入口1 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=6011856e5556545e530">● 滙真网入口1 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://vk580.github.io?p=6011856e5556545e530">● 滙真网入口2 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=6011856e5556545e530">● 滙真网入口3 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://s3.ap-southeast-1.amazonaws.com/nxtx43c6/index.html?p=6011856e5556545e530">● 滙真网入口4 ● </a></b></h3></div> 
+
+
+<div align=center><h3><b><a href="https://gitlab.com/juyuange/2/-/wikis">● 友好链接入口1 ● </a></b></h3></div>
 
 <div align=center><h3><b><a href="https://github.com/ofatuf344/www/blob/master/README.md">● 友好链接入口2 ● </a></b></h3></div>
 
-<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6011868221565727539"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=6011856e5556545e530"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <h2><p><strong>免费翻墙软件下载</strong></p></h2>
 
-安全免费，绿色智能，帮您破除网络封禁，一键上外网。<br>
+<strong>安全免费，绿色智能，帮您破除网络封禁，一键上外网。</strong><br>
 
 [无界浏览（安卓版4.9)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.8/um4.9.apk)
 
@@ -30,9 +32,9 @@
 
 [环门（电脑版038)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.0.8/oGate.zip)
 
-<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6011868221565727539"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
- 
- <h2><p><div><strong>探寻真相</strong></p></h2> 
+<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=6011856e5556545e530"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+
+<h2><p><div><strong>探寻真相</strong></p></h2> 
  
 <p><details><summary><a target="_blank" href="https://github.com/biqjtb3721/ntdtv/blob/master/gb/prog1647_1.md#1">共产党百年真相</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf1176114.md#1">破坏文化</a></p>
@@ -81,8 +83,8 @@
 <p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6150.md#1">法律依据</a></p>
 </details>
 
-<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6011868221565727539"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
-
+<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=6011856e5556545e530"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+ 
 <h2><p><div><strong>弥天的谎言 永远遮不住真相的揭露</strong></p></h2>
 <div align="center"><div align="center">
 <h3><p><div><strong>李辰：伪火与瘟疫</strong></p></h3>
@@ -176,15 +178,18 @@
 
 （转自大纪元/责任编辑：李明）</p>
 
-<p><div align=center><h3><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6011868221565727539&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h3>
+<p><div align=center><h2><a href="https://vk580.github.io?p=6011856e5556545e530&u=santui" rel="nofollow">声明退出中共党、团、队（点击進入）</a></h2>
 </p>
 </div>
-<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6011868221565727539"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
-  <h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
-    
-<div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/readme31.md"><img src="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/readme31.jpg" title="分享本平台"></img></a>
 
-<div align=center><h4>请收藏本站网址：https://github.com/ofn1/Victoria/blob/master/readme31.md</h4></div>
-<div align=center><h3>本站短网址：https://is.gd/znzxf</h3></div>
-<div align=center><h3>本站短网址：https://git.io/znzxf</h3></div>
-<div align=center><h3>本站短网址：https://cutt.ly/znzxf</h3></div>
+<div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=6011856e5556545e530"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
+  
+<div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/readme8.md"><img src="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/readme8_qr.jpg" title="分享本平台"></img></a>
+
+<div align=center><h4>请收藏本站网址：https://github.com/ofn1/Victoria/blob/master/readme8.md</h4></div>
+<div align=center><strong><h3><strong></div>本站短网址：
+<div align=center><h3>https://is.gd/zqstf </h3></div>
+<div align=center><h3>https://git.io/zqstf </h3></div>
+<div align=center><h3>https://cutt.ly/zqstf</h3></div>
