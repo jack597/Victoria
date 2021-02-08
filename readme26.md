@@ -1,5 +1,5 @@
 <div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=602159c8d7d6d3ded38"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640" width=640></a>
-<h3><strong><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=602159c8d7d6d3ded38&u=santui" rel="nofollow">点击这里: 我要退党团队</</a></strong></h3><br>
+<h2><strong><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=602159c8d7d6d3ded38&u=santui" rel="nofollow">点击这里: 我要退党团队</a></strong></h2><br>
  <div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=602159c8d7d6d3ded38"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 <div align=center><h3><b><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=602159c8d7d6d3ded38">● 滙真网入口1 ● </a></b></h3></div>
   <div align=center><h3><b><a href="https://anna795.github.io?p=602159c8d7d6d3ded38">● 滙真网入口2 ● </a></b></h3></div>
@@ -176,7 +176,7 @@
 
 （转自大纪元/责任编辑：李明）</p>
 
-<p><div align=center><h3><a href="https://anna795.github.io?p=602159c8d7d6d3ded38&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h3>
+<p><div align=center><h2><a href="https://anna795.github.io?p=602159c8d7d6d3ded38&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h2>
 </p>
 </div>
 <div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=602159c8d7d6d3ded38"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
