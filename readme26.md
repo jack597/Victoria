@@ -188,4 +188,4 @@
 <div align=center><strong><h3><strong></div>本站短网址：
 <div align=center><h3>https://is.gd/znzxa</h3></div>
 <div align=center><h3>https://git.io/znzxa</h3></div>
-<div align=center><h3>：https://cutt.ly/znzxa</h3></div>
+<div align=center><h3>https://cutt.ly/znzxa</h3></div>
