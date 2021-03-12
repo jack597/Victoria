@@ -86,7 +86,7 @@
 <div align="center"><a href="https://s3.ap-northeast-2.amazonaws.com/gvzswkwq/index.html?p=5f548204dea7d6d1d55"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
   
 <h2><p><div><strong>弥天的谎言 永远遮不住真相的揭露</strong></p></h2> 
-<div align="center"><div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=5f548204dea7d6d1d55"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.9/certificate_1.jpg" width=640></a>
+
  <h3><p><div><strong>新州：中共利用自焚伪案祸害了众多生命</strong></p></h3>
 <p><div style=<p align="left">
 <p>【大纪元2021年02月19日讯】二十年前的一天，即二零零一年一月二十三日，中共在天安门广场精心炮制了一起自焚伪案，被称为“世纪谎言”，当局阴险的目的，从表面上看是抹黑嫁祸法轮功，为升级迫害找个主要借口，而实际上是中共为自己打造了一个祸害生命的机会。漠视生命，杀害生命，毁灭生命是中共这个撒旦魔鬼的本来面目，这一点在自焚伪案中比较明显。</div></p>
