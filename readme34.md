@@ -31,7 +31,7 @@
 [环门（安卓版052)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.1.2/oGatea052.apk)
 
 [环门（电脑版038)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.1.2/oGate.zip)
-[环门（电脑版038)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.1.1/oGate.zip)
+
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/cm9abro8/index.html?p=5f8d257e54225855534"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.2/fngrchn3.jpg" width=640></a>
 
 <h2><p><div><strong>探寻真相</strong></p></h2> 
