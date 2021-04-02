@@ -152,7 +152,7 @@
 <p><div align=center><h2><a href="https://hm597.github.io?p=601048be5e585455534&u=santui" rel="nofollow">声明退出中共党（团、队）（点击進入）</a></h2>
 </p>
 </div>
-
+<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=601048be5e585455534"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=601048be5e585455534&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/8.jpg" width=640></a>
 <div align="center"><a href="https://s3.us-west-2.amazonaws.com/cn3oe3zg/index.html?p=601048be5e585455534&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/18.jpg" width=640></a>
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/dbjrh6j2/index.html?p=601048be5e585455534&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/19.jpg" width=640></a>
