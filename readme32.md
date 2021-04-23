@@ -1,5 +1,5 @@
 <div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6082ebecd6a2d6d1d32"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640" width=640></a>
-<h3><strong><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6082ebecd6a2d6d1d32&u=santui" rel="nofollow">点击这里: 我要退党团队</a></strong></h3><br>
+<h2><strong><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6082ebecd6a2d6d1d32&u=santui" rel="nofollow">点击这里: 我要退党团队</a></strong></h2><br>
  <div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6082ebecd6a2d6d1d32"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 <div align=center><h3><b><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6082ebecd6a2d6d1d32">● 滙真网入口1 ● </a></b></h3></div>
 <div align=center><h3><b><a href="https://anna795.github.io?p=6082ebecd6a2d6d1d32">● 滙真网入口2 ● </a></b></h3></div>
@@ -151,7 +151,7 @@
 <p>来源明慧网，并包含明慧网原文标题及原文链接。</p>
 <p>网址转载：https://www.minghui.org/mh/articles/2021/3/20/心中想什么-好事才能成--422318.html</div></p>
 
-<p><div align=center><h3><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6082ebecd6a2d6d1d32&u=santui" rel="nofollow">声明退出中共党（团、队）（点击進入）</a></h3>
+<p><div align=center><h2><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6082ebecd6a2d6d1d32&u=santui" rel="nofollow">声明退出中共党（团、队）（点击進入）</a></h2>
 </p>
 </div>
 
