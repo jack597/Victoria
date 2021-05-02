@@ -1,17 +1,17 @@
-<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=6022c25be21417e7134"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640></a>
-<h2><strong><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=6022c25be21417e7134&u=santui" rel="nofollow">点击这里: 我要退党团队</a></strong></h2><br>
-<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=6022c25be21417e7134"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=608e2854a2d4d7a7d37"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640></a>
+<h2><strong><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=608e2854a2d4d7a7d37&u=santui" rel="nofollow">点击这里: 我要退党团队</a></strong></h2><br>
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=608e2854a2d4d7a7d37"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
-<div align=center><h3><b><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=6022c25be21417e7134">● 滙真网入口1 ● </a></b></h3></div>
-  <div align=center><h3><b><a href="https://mqq2.github.io?p=6022c25be21417e7134">● 滙真网入口2 ● </a></b></h3></div>
-<div align=center><h3><b><a href="https://s3.ap-southeast-2.amazonaws.com/w9vadjt4/index.html?p=6022c25be21417e7134">● 滙真网入口3 ● </a></b></h3></div>
-<div align=center><h3><b><a href="https://s3.us-west-2.amazonaws.com/ebr00clo/index.html?p=6022c25be21417e7134">● 滙真网入口4 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=608e2854a2d4d7a7d37">● 滙真网入口1 ● </a></b></h3></div>
+  <div align=center><h3><b><a href="https://mqq2.github.io?p=608e2854a2d4d7a7d37">● 滙真网入口2 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://s3.ap-southeast-2.amazonaws.com/w9vadjt4/index.html?p=608e2854a2d4d7a7d37">● 滙真网入口3 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://s3.us-west-2.amazonaws.com/ebr00clo/index.html?p=608e2854a2d4d7a7d37">● 滙真网入口4 ● </a></b></h3></div>
 
 <div align=center><h3><b><a href="https://gitlab.com/juyuange/2/-/wikis">● 友好链接入口1 ● </a></b></h3></div>
 
 <div align=center><h3><b><a href="https://github.com/ofatuf344/www/blob/master/README.md">● 友好链接入口2 ● </a></b></h3></div>
 
-<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=6022c25be21417e7134"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=608e2854a2d4d7a7d37"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <h2><p><strong>免费翻墙软件下载</strong></p></h2>
 
@@ -32,7 +32,7 @@
 [环门（安卓版053)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.1.5/oGatea053.apk)
 
 
-<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=6022c25be21417e7134"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=608e2854a2d4d7a7d37"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <h2><p><div><strong>探寻真相</strong></p></h2> 
  
@@ -82,7 +82,7 @@
 <p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6149.md#1">各界评论</a></p>
 <p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6150.md#1">法律依据</a></p>
 </details>
-<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=6022c25be21417e7134"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=608e2854a2d4d7a7d37"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <h2><p><div><strong>弥天的谎言 永远遮不住真相的揭露</strong></p></h2>
 <div align="center"><div align="center">
@@ -150,27 +150,29 @@
 <p>来源明慧网，并包含明慧网原文标题及原文链接。</p>
 <p>网址转载：https://www.minghui.org/mh/articles/2021/3/20/心中想什么-好事才能成--422318.html</div></p>
 
-<p><div align=center><h2><a href="https://mqq2.github.io?p=6022c25be21417e7134&u=santui" rel="nofollow">声明退出中共党、团、队（点击進入）</a></h2>
+<p><div align=center><h2><a href="https://mqq2.github.io?p=608e2854a2d4d7a7d37&u=santui" rel="nofollow">声明退出中共党、团、队（点击進入）</a></h2>
 </p>
 </div>
-<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=6022c25be21417e7134"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=608e2854a2d4d7a7d37"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <h2><p><div><strong>法轮功真相图片展</strong></p></h2>
 
-<div align="center"><a href="https://s3.ap-southeast-2.amazonaws.com/w9vadjt4/index.html?p=6022c25be21417e7134&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/8.jpg" width=640></a>
-<div align="center"><a href="https://s3.us-west-2.amazonaws.com/cn3oe3zg/index.html?p=6022c25be21417e7134&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/18.jpg" width=640></a>
-<div align="center"><a href="https://s3.ap-southeast-2.amazonaws.com/yk11k9yj/index.html?p=6022c25be21417e7134&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/19.jpg" width=640></a>
-<div align="center"><a href="https://s3.us-west-2.amazonaws.com/ebr00clo/index.html?p=6022c25be21417e7134&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/20.jpg" width=640></a>
-<div align="center"><a href="https://s3.us-west-2.amazonaws.com/o4co4lxs/index.html?p=6022c25be21417e7134&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/21.jpg" width=640></a>
- <div align="center"><a href="https://s3.us-west-2.amazonaws.com/rxg07fdu/index.html?p=6022c25be21417e7134&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/22.jpg" width=640></a>
- <div align="center"><a href="https://s3.us-west-2.amazonaws.com/uea44216/index.html?p=6022c25be21417e7134&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/23.jpg" width=640></a>
-<div align="center"><a href="https://s3.ap-southeast-2.amazonaws.com/roqknyau/index.html?p=6022c25be21417e7134&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/26.jpg" width=640></a>
-<div align="center"><a href="https://s3.ap-southeast-2.amazonaws.com/w9vadjt4/index.html?p=6022c25be21417e7134&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/27.jpg" width=640></a>
-<div align="center"><a href="https://s3.ap-southeast-2.amazonaws.com/yk11k9yj/index.html?p=6022c25be21417e7134&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/28.jpg" width=640></a>
-<div align="center"><a href="https://s3.ap-southeast-2.amazonaws.com/zappa-dfeuw9gz0/index.html?p=6022c25be21417e7134&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/35.jpg" width=640></a>
- <div align="center"><a href="https://s3.ap-southeast-2.amazonaws.com/zappa-dfeuw9gz0/index.html?p=6022c25be21417e7134&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.4/38.jpg" width=640></a>
 
-<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=6022c25be21417e7134"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.eu-central-1.amazonaws.com/bv9taysd/index.html?p=608e2854a2d4d7a7d37&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.5/flg_29.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-southeast-2.amazonaws.com/w9vadjt4/index.html?p=608e2854a2d4d7a7d37&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.5/8.jpg" width=640></a>
+<div align="center"><a href="https://s3.us-west-2.amazonaws.com/cn3oe3zg/index.html?p=608e2854a2d4d7a7d37&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.5/18.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-southeast-2.amazonaws.com/yk11k9yj/index.html?p=608e2854a2d4d7a7d37&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.5/19.jpg" width=640></a>
+<div align="center"><a href="https://s3.us-west-2.amazonaws.com/ebr00clo/index.html?p=608e2854a2d4d7a7d37&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.5/20.jpg" width=640></a>
+<div align="center"><a href="https://s3.us-west-2.amazonaws.com/o4co4lxs/index.html?p=608e2854a2d4d7a7d37&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.5/21.jpg" width=640></a>
+ <div align="center"><a href="https://s3.us-west-2.amazonaws.com/rxg07fdu/index.html?p=608e2854a2d4d7a7d37&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.5/22.jpg" width=640></a>
+ <div align="center"><a href="https://s3.us-west-2.amazonaws.com/uea44216/index.html?p=608e2854a2d4d7a7d37&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.5/23.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-southeast-2.amazonaws.com/roqknyau/index.html?p=608e2854a2d4d7a7d37&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.5/26.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-southeast-2.amazonaws.com/w9vadjt4/index.html?p=608e2854a2d4d7a7d37&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.5/27.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-southeast-2.amazonaws.com/yk11k9yj/index.html?p=608e2854a2d4d7a7d37&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.5/28.jpg" width=640></a>
+<div align="center"><a href="https://s3.ap-southeast-2.amazonaws.com/zappa-dfeuw9gz0/index.html?p=608e2854a2d4d7a7d37&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.5/35.jpg" width=640></a>
+ <div align="center"><a href="https://s3.ap-southeast-2.amazonaws.com/zappa-dfeuw9gz0/index.html?p=608e2854a2d4d7a7d37&u=santui" rel="nofollow""><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.5/38.jpg" width=640></a>
+
+<div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=608e2854a2d4d7a7d37"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
   
