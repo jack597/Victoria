@@ -3,7 +3,7 @@
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/jxsjfffm/index.html?p=6098d630d6dea8ded38"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <div align=center><h3><b><a href="https://s3.ap-northeast-1.amazonaws.com/jxsjfffm/index.html?p=6098d630d6dea8ded38">● 滙真网入口1 ● </a></b></h3></div>
-<div align=center><h3><b><a href="https://hm597.github.io?p=6098d630d6dea8ded38">● 滙真网入口2 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://dw88.github.io?p=6098d630d6dea8ded38">● 滙真网入口2 ● </a></b></h3></div>
 <div align=center><h3><b><a href="https://s3.ap-southeast-1.amazonaws.com/skg9n49a/index.html?p=6098d630d6dea8ded38">● 滙真网入口3 ● </a></b></h3></div>
  <div align=center><h3><b><a href="https://s3.us-west-1.amazonaws.com/u5i6alx3/index.html?p=6098d630d6dea8ded38">● 滙真网入口4 ● </a></b></h3></div> 
 
@@ -149,7 +149,7 @@
 <p><div style=<p align="center">本文章或节目明慧网版权所有，非盈利转载请注明</p>
 <p>来源明慧网，并包含明慧网原文标题及原文链接。</p>
 <p>网址转载：https://www.minghui.org/mh/articles/2021/3/20/心中想什么-好事才能成--422318.html</div></p>
-<p><div align=center><h2><a href="https://hm597.github.io?p=6098d630d6dea8ded38&u=santui" rel="nofollow">声明退出中共党（团、队）（点击進入）</a></h2>
+<p><div align=center><h2><a href="https://dw88.github.io?p=6098d630d6dea8ded38&u=santui" rel="nofollow">声明退出中共党（团、队）（点击進入）</a></h2>
 </p>
 </div>
 
