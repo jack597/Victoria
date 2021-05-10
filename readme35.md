@@ -178,6 +178,6 @@
 
 <div align=center><h4>请收藏本站网址：https://github.com/ofn1/Victoria/blob/master/README35.md</h4></div>
 <div align=center><strong><h3><strong></div>本站短网址：
-<div align=center><h3>https://git.io/huizhen888</h3></div>
-<div align=center><h3>https://is.gd/huizhen888</h3></div>
-<div align=center><h3>https://cutt.ly/huizhen888</h3></div>
+<div align=center><h3>https://git.io/huiz99</h3></div>
+<div align=center><h3>https://is.gd/huiz99</h3></div>
+<div align=center><h3>https://cutt.ly/huiz99</h3></div>
