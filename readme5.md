@@ -85,9 +85,9 @@
 <div align="center"><a href="https://s3.us-east-2.amazonaws.com/cssact-mark-new/index.html?p=60118323111713e4133"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 <h2><p><div><strong>弥天的谎言 永远遮不住真相的揭露</strong></p></h2>
 <div align="center"><div align="center">
-<h3><p><div><strong>心中想什么　好事才能成？</strong></p></h3>
-<p><div style=<p align="left">
 <h2><p><div><strong>王友群：第十任中共党魁江泽民面临的最后结局</strong></p></h2>
+<p><div style=<p align="left">
+
 <p><div style=<p align="left">
  <p>
   【大纪元2021年05月09日讯】1989年，踏着“六四”学生鲜血上台的第十任中共党魁
