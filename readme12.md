@@ -82,7 +82,8 @@
 <p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6149.md#1">各界评论</a></p>
 <p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6150.md#1">法律依据</a></p>
 </details>
-
+<div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=60a28b631ee816e1138"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+ 
 <h2><p><div><strong>弥天的谎言 永远遮不住真相的揭露</strong></p></h2>
 <div align="center"><div align="center">
 <h2><p><div><strong>王友群：第十任中共党魁江泽民面临的最后结局</strong></p></h2>
