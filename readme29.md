@@ -16,19 +16,21 @@
 
 安全免费，绿色智能，帮您破除网络封禁，一键上外网。<br>
 
-[自由门vpn（安卓版1.1)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.1.7/fgvpn.apk)
+[自由门vpn（安卓版1.3)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.2.0/fgvpn.apk)
 
-[自由门（安卓版5.0)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.1.7/fgma.apk)
+[自由门（安卓版5.0)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.2.0/fgma.apk)
 
-[自由门（电脑版7.96)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.1.7/fg796p.zip)
+[自由门（电脑版7.97)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.2.0/fg797p.zip)
 
-[无界浏览（安卓版5.0)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.1.7/um5.0.apk)
+[无界浏览（安卓版5.0)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.2.0/um5.0.apk)
 
-[无界浏览（电脑版21.20)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.1.7/u2120.zip)
+[无界浏览（电脑版21.32)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.2.0/u2132.zip)
 
-[聚缘阁（安卓版802)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.1.7/jyg802.apk)
+[聚缘阁（安卓版802)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.2.0/jyg802.apk)
 
-[环门（安卓版053)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.1.7/oGatea053.apk)
+[环门（安卓版053)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.2.0/oGatea053.apk)
+
+
 <div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=60a72cc197936291939"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
  
  <h2><p><div><strong>探寻真相</strong></p></h2> 
