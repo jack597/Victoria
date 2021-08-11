@@ -1,16 +1,16 @@
-<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=60a72e18a8ddd5d4d39"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640" width=640></a>
-<h3><strong><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=60a72e18a8ddd5d4d39&u=santui" rel="nofollow">“三退，您退了吗？” 点击这里: 退出中共党（/团/队）</a></strong></h3><br>
- <div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=60a72e18a8ddd5d4d39"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
-<div align=center><h3><b><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=60a72e18a8ddd5d4d39">● 滙真网入口1 ● </a></b></h3></div>
-<div align=center><h3><b><a href="https://anna795.github.io?p=60a72e18a8ddd5d4d39">● 滙真网入口2 ● </a></b></h3></div>
-<div align=center><h3><b><a href="https://s3.eu-central-1.amazonaws.com/btyzvcva/index.html?p=60a72e18a8ddd5d4d39">● 滙真网入口3 ● </a></b></h3></div>
-<div align=center><h3><b><a href="https://s3.ap-northeast-2.amazonaws.com/uwqvhhj8/index.html?p=60a72e18a8ddd5d4d39">● 滙真网入口4 ● </a></b></h3></div>  
+<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6113e830a8ddd5d4d38"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640" width=640></a>
+<h3><strong><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6113e830a8ddd5d4d38&u=santui" rel="nofollow">“三退，您退了吗？” 点击这里: 退出中共党（/团/队）</a></strong></h3><br>
+ <div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6113e830a8ddd5d4d38"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align=center><h3><b><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6113e830a8ddd5d4d38">● 滙真网入口1 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://anna795.github.io?p=6113e830a8ddd5d4d38">● 滙真网入口2 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://s3.eu-central-1.amazonaws.com/btyzvcva/index.html?p=6113e830a8ddd5d4d38">● 滙真网入口3 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://s3.ap-northeast-2.amazonaws.com/uwqvhhj8/index.html?p=6113e830a8ddd5d4d38">● 滙真网入口4 ● </a></b></h3></div>  
 
 <div align=center><h3><b><a href="https://github.com/gofanben/gm/blob/master/swsp.md">● 友好链接入口1 ● </a></b></h3></div>
 
 <div align=center><h3><b><a href="https://github.com/ofatuf344/www/blob/master/README.md">● 友好链接入口2 ● </a></b></h3></div>
 
-<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=60a72e18a8ddd5d4d39"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6113e830a8ddd5d4d38"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <h2><p><strong>免费翻墙软件下载</strong></p></h2>
 
@@ -30,7 +30,7 @@
 
 [环门（安卓版053)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.2.0/oGatea053.apk)
 
-<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=60a72e18a8ddd5d4d39"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6113e830a8ddd5d4d38"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
  
  <h2><p><div><strong>探寻真相</strong></p></h2> 
  
@@ -81,7 +81,7 @@
 <p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6150.md#1">法律依据</a></p>
 </details>
 
-<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=60a72e18a8ddd5d4d39"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6113e830a8ddd5d4d38"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 <h2><p><div><strong>弥天的谎言 永远遮不住真相的揭露</strong></p></h2>
 <div align="center"><div align="center">
 <h2><p><div><strong>周晓辉：批疫苗副作用大 药理学博士微博被封</strong></p></h2>
@@ -116,10 +116,10 @@
 <p>是以，无论从疫苗的实验数据和接种后的效果、对社会的影响看，中共疫苗在防感染、防发病、防传播和防重症、死亡四个方面以及社会开放度上，实在是打了北京当局和中共防疫高官、专家们的脸。既然疫苗的长期数据缺乏、效果有限，中共当局为何还采取各种手段强制民众打呢？或许疫苗背后的巨大利益才是中共当局强制的真正原因。不久前，大陆媒体爆出科兴疫苗的生产厂家、疫苗龙头企业中国生物制药有限公司，三个月内赚取100亿，而其背后有多少中共权贵笑得合不拢嘴呢？明白了真相的中国人一定不要傻傻地继续被中共骗下去了。</p>
 
 <p>责任编辑：莆山</p>
-<p><div align=center><h3><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=60a72e18a8ddd5d4d39&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h3>
+<p><div align=center><h3><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6113e830a8ddd5d4d38&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h3>
 </p>
 </div>
-<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=60a72e18a8ddd5d4d39"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6113e830a8ddd5d4d38"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
   <h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
     
 <div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/readme30.md"><img src="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/readme30.jpg" title="分享本平台"></img></a>
