@@ -116,7 +116,7 @@
 <p>是以，无论从疫苗的实验数据和接种后的效果、对社会的影响看，中共疫苗在防感染、防发病、防传播和防重症、死亡四个方面以及社会开放度上，实在是打了北京当局和中共防疫高官、专家们的脸。既然疫苗的长期数据缺乏、效果有限，中共当局为何还采取各种手段强制民众打呢？或许疫苗背后的巨大利益才是中共当局强制的真正原因。不久前，大陆媒体爆出科兴疫苗的生产厂家、疫苗龙头企业中国生物制药有限公司，三个月内赚取100亿，而其背后有多少中共权贵笑得合不拢嘴呢？明白了真相的中国人一定不要傻傻地继续被中共骗下去了。</p>
 
 <p>责任编辑：莆山</p>
-<p><div align=center><h3><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6113e830a8ddd5d4d38&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h3>
+<p><div align=center><h2><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6113e830a8ddd5d4d38&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h2>
 </p>
 </div>
 <div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6113e830a8ddd5d4d38"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
