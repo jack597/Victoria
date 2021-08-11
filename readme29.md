@@ -1,16 +1,16 @@
-<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=60a72cc197936291939"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640" width=640></a>
-<h3><strong><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=60a72cc197936291939&u=santui" rel="nofollow">“三退，您退了吗？” 点击这里: 退出中共党（/团/队）</a></strong></h3><br>
- <div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=60a72cc197936291939"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
-<div align=center><h3><b><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=60a72cc197936291939">● 滙真网入口1 ● </a></b></h3></div>
-  <div align=center><h3><b><a href="https://anna795.github.io?p=60a72cc197936291939">● 滙真网入口2 ● </a></b></h3></div>
-<div align=center><h3><b><a href="https://s3.eu-central-1.amazonaws.com/btyzvcva/index.html?p=60a72cc197936291939">● 滙真网入口3 ● </a></b></h3></div>
-<div align=center><h3><b><a href="https://s3.ap-northeast-2.amazonaws.com/uwqvhhj8/index.html?p=60a72cc197936291939">● 滙真网入口4 ● </a></b></h3></div>  
+<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6113e74597936291932"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640" width=640></a>
+<h3><strong><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6113e74597936291932&u=santui" rel="nofollow">“三退，您退了吗？” 点击这里: 退出中共党（/团/队）</a></strong></h3><br>
+ <div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6113e74597936291932"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align=center><h3><b><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6113e74597936291932">● 滙真网入口1 ● </a></b></h3></div>
+  <div align=center><h3><b><a href="https://anna795.github.io?p=6113e74597936291932">● 滙真网入口2 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://s3.eu-central-1.amazonaws.com/btyzvcva/index.html?p=6113e74597936291932">● 滙真网入口3 ● </a></b></h3></div>
+<div align=center><h3><b><a href="https://s3.ap-northeast-2.amazonaws.com/uwqvhhj8/index.html?p=6113e74597936291932">● 滙真网入口4 ● </a></b></h3></div>  
 
 <div align=center><h3><b><a href="https://github.com/gofanben/gm/blob/master/swsp.md">● 友好链接入口1 ● </a></b></h3></div>
 
 <div align=center><h3><b><a href="https://github.com/ofatuf344/www/blob/master/README.md">● 友好链接入口2 ● </a></b></h3></div>
 
-<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=60a72cc197936291939"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6113e74597936291932"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <h2><p><strong>免费翻墙软件下载</strong></p></h2>
 
@@ -31,7 +31,7 @@
 [环门（安卓版053)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.2.0/oGatea053.apk)
 
 
-<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=60a72cc197936291939"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6113e74597936291932"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
  
  <h2><p><div><strong>探寻真相</strong></p></h2> 
  
@@ -82,7 +82,7 @@
 <p><a target="_blank" href="https://github.com/biqjtb3721/djy/blob/master/gb/nf6150.md#1">法律依据</a></p>
 </details>
 
-<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=60a72cc197936291939"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6113e74597936291932"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 <h3><p><div><strong>为什么这些“密接者”不染疫？</strong></p></h3>
 <p><div style=<p align="left">
 <p>文: 欣言</p>
@@ -146,10 +146,10 @@
 
 <p>本文章或节目明慧网版权所有，非盈利转载请注明</p>
 <p>来源明慧网，并包含明慧网原文标题及原文链接。</p>
-<p><div align=center><h3><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=60a72cc197936291939&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h3>
+<p><div align=center><h3><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6113e74597936291932&u=santui" rel="nofollow">声明退出中共党（团队）（点击進入）</a></h3>
 </p>
 </div>
-<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=60a72cc197936291939"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
+<div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6113e74597936291932"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
   <h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
     
 <div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/readme29.md"><img src="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/readme29_qr.jpg" title="分享本平台"></img></a>
