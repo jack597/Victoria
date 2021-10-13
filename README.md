@@ -25,7 +25,7 @@
 
 [无界浏览（电脑版21.32)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.2.1/u2132.zip)
 
-[聚缘阁（安卓版802)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.2.1/jyg802.apk)
+[神州明见（安卓版5.6)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.2.2/szmj.apk)
 
 [环门（安卓版054)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.2.1/oGatea.apk)
 
