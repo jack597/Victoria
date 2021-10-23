@@ -28,7 +28,7 @@
 
 [神州明见（安卓版5.6)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.2.2/szmj.apk)
 
-[环门（安卓版054)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.2.2/oGatea.apk)
+
 
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/jxsjfffm/index.html?p=6098d630d6dea8ded38"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
