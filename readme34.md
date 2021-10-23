@@ -30,7 +30,7 @@
 
 [神州明见（安卓版5.6)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.2.2/szmj.apk)
 
-[环门（安卓版054)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.2.2/oGatea.apk)
+
 
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/cm9abro8/index.html?p=60a726e0d4a2d8d5d36"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.2/fngrchn3.jpg" width=640></a>
 
