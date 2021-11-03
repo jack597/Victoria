@@ -175,6 +175,7 @@
 <div align="center"><h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
   
 <div align="center"><a href="https://gitlab.com/ofn1/Victoria/-/blob/master/README.md"><img src="https://gitlab.com/ofn1/huihui/-/blob/master/readme_qr.jpg" title="分享本平台"></img></a>
+ <div align="center"><h4><h4>扫描下面二维码下载安装滙真網App</h4> 
 <div align="center"><a href="https://gitlab.com/ofn1/Victoria/-/blob/master/README.md"><img src="https://gitlab.com/ofn1/huihui/-/blob/master/huizhen115.jpg" title="分享本平台"></img></a>
 <div align=center><h4>请收藏本站网址：https://github.com/ofn1/Victoria/blob/master/README.md</h4></div>
 <div align=center><strong><h3><strong></div>本站短网址：
