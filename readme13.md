@@ -107,7 +107,7 @@
 <h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
   
 <div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/README.md"><img src="https://gitlab.com/ofn1/huihui/-/raw/master/readme_qr.jpg" title="分享本平台"></img></a>
-  <h4><h4>扫描二维码安装汇真App</h4>
+<h4><h4>扫描二维码安装汇真App</h4>
 <div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/README.md"><img src="https://gitlab.com/ofn1/huihui/-/raw/master/huizhen115_qr.jpg" title="分享本平台"></img></a>
 <div align=center><h4>请收藏本站网址：https://github.com/ofn1/Victoria/blob/master/readme13.md</h4></div>
 
