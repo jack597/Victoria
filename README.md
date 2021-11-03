@@ -16,7 +16,7 @@
 
 <strong>安全免费，绿色智能，帮您破除网络封禁，一键上外网。</strong><br>
  
-[滙真網（安卓版1.1.5)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.2.4/huizhen115.apk)
+[滙真網（安卓版1.1.5)](https://gitlab.com/ofn1/zhenzhen/-/raw/master/huizhen115.apk)
 
 [自由门vpn（安卓版1.3)](https://cdn.jsdelivr.net/gh/ofn1/zhenzhen@2.2.4/fgvpn.apk)
 
