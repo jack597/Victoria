@@ -28,7 +28,7 @@
 
 [无界浏览（电脑版21.32)](https://gitlab.com/ofn1/zhenzhen/-/blob/master/u2132.zip)
 
-[聚缘阁（安卓版802)](https://gitlab.com/ofn1/zhenzhen/-/blob/master/szmj.apk)
+[神州明见（安卓版5.1)](https://gitlab.com/ofn1/zhenzhen/-/blob/master/szmj.apk)
 
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=60ee5a731e181415138"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
