@@ -31,7 +31,7 @@
 
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/md3k3ja8/index.html?p=5eca780227525624530"><IMG SRC="https://github.com/ofn1/Victoria/blob/master/fngrchn3.jpg" width=640></a>
 
-<h1><p><div><strong>全球退党中心倡议：解体中共 远离瘟疫</strong></p></h1>
+<h1><p><div><strong>惜缘：为什么要退出共产党</strong></p></h1>
 <p><strong><div style=<p align="left">
  <p>
   【大纪元2021年11月06日讯】为什么要
