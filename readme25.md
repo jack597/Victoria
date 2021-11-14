@@ -32,7 +32,6 @@
 [神州明见（安卓版5.1)](https://gitlab.com/ofn1/zhenzhen/-/raw/master/szmj.apk)
 
 
-
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=60a290159e989495934"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <h2><p><div><strong>探寻真相</strong></p></h2> 
