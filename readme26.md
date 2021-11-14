@@ -16,19 +16,19 @@
 
 安全免费，绿色智能，帮您破除网络封禁，一键上外网。<br>
 
-[滙真網（安卓版1.1.5)](https://gitlab.com/ofn1/zhenzhen/-/raw/master/huizhen115.apk)
+[滙真網（安卓版1.1.6)](https://gitlab.com/ofn1/zhenzhen/-/raw/master/huizhen116.apk)
 
-[自由门vpn（安卓版1.3)](https://gitlab.com/ofn1/zhenzhen/-/blob/master/fgvpn.apk)
+[自由门vpn（安卓版1.3)](https://gitlab.com/ofn1/zhenzhen/-/raw/master/fgvpn.apk)
 
-[自由门（安卓版5.0)](https://gitlab.com/ofn1/zhenzhen/-/blob/master/fgma.apk)
+[自由门（安卓版5.0)](https://gitlab.com/ofn1/zhenzhen/-/raw/master/fgma.apk)
 
-[自由门（电脑版7.97)](https://gitlab.com/ofn1/zhenzhen/-/blob/master/fg797p.zip)
+[自由门（电脑版7.97)](https://gitlab.com/ofn1/zhenzhen/-/raw/master/fg797p.zip)
 
-[无界浏览（安卓版5.0)](https://gitlab.com/ofn1/zhenzhen/-/blob/master/um5.0.apk)
+[无界浏览（安卓版5.0)](https://gitlab.com/ofn1/zhenzhen/-/raw/master/um5.0.apk)
 
-[无界浏览（电脑版21.32)](https://gitlab.com/ofn1/zhenzhen/-/blob/master/u2132.zip)
+[无界浏览（电脑版21.32)](https://gitlab.com/ofn1/zhenzhen/-/raw/master/u2132.zip)
 
-[神州明见（安卓版5.1)](https://gitlab.com/ofn1/zhenzhen/-/blob/master/szmj.apk)
+[神州明见（安卓版5.1)](https://gitlab.com/ofn1/zhenzhen/-/raw/master/szmj.apk)
 
 
 <div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6113e4659796939e930"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
@@ -155,7 +155,7 @@
 </div>
 <div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6113e4659796939e930"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
   <div align="center"><h4><h4>扫描下面二维码下载安装滙真網App</h4> 
-<div align="center"><a href="https://gitlab.com/ofn1/Victoria/-/blob/master/README.md"><img src="https://gitlab.com/ofn1/huihui/-/raw/master/huizhen115_qr.jpg" title="滙真網"></img></a>
+<div align="center"><a href="https://gitlab.com/ofn1/Victoria/-/blob/master/README.md"><img src="https://gitlab.com/ofn1/huihui/-/raw/master/huizhen116_qr.jpg" title="滙真網"></img></a>
  
  <h4>手机上长按并复制下列网址或二维码分享本平台：</h4>
  <div align="center"><a href="https://github.com/ofn1/Victoria/blob/master/readme26.md"><img src="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.1.2/readme26_qr.jpg" title="分享本平台"></img></a>
