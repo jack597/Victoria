@@ -18,17 +18,17 @@
  
 [滙真網（安卓版1.1.6)](https://gitlab.com/ofn1/zhenzhen/-/raw/master/huizhen116.apk)
 
-[自由门vpn（安卓版1.3)](https://gitlab.com/ofn1/zhenzhen/-/blob/master/fgvpn.apk)
+[自由门vpn（安卓版1.3)](https://gitlab.com/ofn1/zhenzhen/-/raw/master/fgvpn.apk)
 
-[自由门（安卓版5.0)](https://gitlab.com/ofn1/zhenzhen/-/blob/master/fgma.apk)
+[自由门（安卓版5.0)](https://gitlab.com/ofn1/zhenzhen/-/raw/master/fgma.apk)
 
-[自由门（电脑版7.97)](https://gitlab.com/ofn1/zhenzhen/-/blob/master/fg797p.zip)
+[自由门（电脑版7.97)](https://gitlab.com/ofn1/zhenzhen/-/raw/master/fg797p.zip)
 
-[无界浏览（安卓版5.0)](https://gitlab.com/ofn1/zhenzhen/-/blob/master/um5.0.apk)
+[无界浏览（安卓版5.0)](https://gitlab.com/ofn1/zhenzhen/-/raw/master/um5.0.apk)
 
-[无界浏览（电脑版21.32)](https://gitlab.com/ofn1/zhenzhen/-/blob/master/u2132.zip)
+[无界浏览（电脑版21.32)](https://gitlab.com/ofn1/zhenzhen/-/raw/master/u2132.zip)
 
-[神州明见（安卓版5.1)](https://gitlab.com/ofn1/zhenzhen/-/blob/master/szmj.apk)
+[神州明见（安卓版5.1)](https://gitlab.com/ofn1/zhenzhen/-/raw/master/szmj.apk)
 
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=60ee5a731e181415138"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
