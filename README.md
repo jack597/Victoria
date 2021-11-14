@@ -16,7 +16,7 @@
 
 <strong>安全免费，绿色智能，帮您破除网络封禁，一键上外网。</strong><br>
  
-[滙真網（安卓版1.1.5)](https://gitlab.com/ofn1/zhenzhen/-/raw/master/huizhen115.apk)
+[滙真網（安卓版1.1.6)](https://gitlab.com/ofn1/zhenzhen/-/raw/master/huizhen116.apk)
 
 [自由门vpn（安卓版1.3)](https://gitlab.com/ofn1/zhenzhen/-/blob/master/fgvpn.apk)
 
@@ -175,7 +175,7 @@
   
 <div align="center"><a href="https://gitlab.com/ofn1/Victoria/-/blob/master/README.md"><img src="https://gitlab.com/ofn1/huihui/-/raw/master/readme_qr.jpg" title="分享本平台"></img></a>
  <div align="center"><h4><h4>扫描下面二维码下载安装滙真網App</h4> 
-<div align="center"><a href="https://gitlab.com/ofn1/Victoria/-/blob/master/README.md"><img src="https://gitlab.com/ofn1/huihui/-/raw/master/huizhen115_qr.jpg" title="滙真網"></img></a>
+<div align="center"><a href="https://gitlab.com/ofn1/Victoria/-/blob/master/README.md"><img src="https://gitlab.com/ofn1/huihui/-/raw/master/huizhen116.jpg" title="滙真網"></img></a>
 <div align=center><h4>请收藏本站网址：https://github.com/ofn1/Victoria/blob/master/README.md</h4></div>
 <div align=center><strong><h3><strong></div>本站短网址：
 <div align=center><h3>https://git.io/hzhen </h3></div>
