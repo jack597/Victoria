@@ -1,5 +1,5 @@
 <div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6113e5ff15e71814135"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/hzhen5.jpg" width=640" width=640></a>
-<h3><strong><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6113e5ff15e71814135&u=santui" rel="nofollow">“三退，您退了吗？” 点击这里: 退出中共党（/团/队）</a></strong></h3><br>
+<h3><strong><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6113e5ff15e71814135&u=santui" rel="nofollow">点击这里: 我要退党团队</a></strong></h3><br>
  <div align="center"><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6113e5ff15e71814135"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 <div align=center><h3><b><a href="https://s3.us-west-1.amazonaws.com/xkwvidrnqy/index.html?p=6113e5ff15e71814135">● 滙真网入口1 ● </a></b></h3></div>
 <div align=center><h3><b><a href="https://anna795.github.io?p=6113e5ff15e71814135">● 滙真网入口2 ● </a></b></h3></div>
