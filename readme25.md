@@ -90,7 +90,7 @@
  <p>
   【大纪元2021年11月25日讯】今年是中共独裁者<a href="http://cn.epochtimes.com/gb/tag/%E6%B1%9F%E6%B3%BD%E6%B0%91.html">江泽民</a>发动迫害法轮功22年。经过全世界法轮功学员持续22年反迫害，中共高层都知道迫害法轮功是错的。限于篇幅，兹举四个证据加以说明。</p>
 <h2>一，<a href="http://cn.epochtimes.com/gb/tag/%E7%99%BE%E5%B9%B4%E4%B8%AD%E5%85%B1%E5%A4%A7%E4%BA%8B%E8%AE%B0.html">百年中共大事记</a>只字未提法轮功</h2>
-<p><div class="adshow300" id="inarticle_ad300" style="display:inline-block; text-align: center"><script type="text/javascript">googletag.cmd.push(function() {googletag.defineSlot('/5965368/DJYcn_news_article_below_header_F4_336x250', [[300, 250], [336, 280]], 'div-gpt-ad-1399580982834-0').addService(googletag.pubads()).setCollapseEmptyDiv(true, true);googletag.enableServices();});</script><!-- DJYcn_news_article_below_header_F4_336x250 --><div id="div-gpt-ad-1399580982834-0" data-cb-ad-id="inside-content-300" style="" data-google-query-id="CKOrkOvHsvQCFQd3AQod9IcIcQ"><div id="google_ads_iframe_/5965368/DJYcn_news_article_below_header_F4_336x250_0__container__" style="border: 0pt none;"><iframe id="google_ads_iframe_/5965368/DJYcn_news_article_below_header_F4_336x250_0" title="3rd party ad content" name="google_ads_iframe_/5965368/DJYcn_news_article_below_header_F4_336x250_0" scrolling="no" marginwidth="0" marginheight="0" style="border: 0px none; vertical-align: bottom;" srcdoc="" data-google-container-id="2" width="300" height="250" frameborder="0"></iframe></div></div></div>6月27日，新华社发表中共中央党史和文献研究院编撰的《中国共产党一百年大事记（1921年7月－2021年6月）》。其中，1999年，列举了八件大事，但只字未提法轮功。</p>
+<p>6月27日，新华社发表中共中央党史和文献研究院编撰的《中国共产党一百年大事记（1921年7月－2021年6月）》。其中，1999年，列举了八件大事，但只字未提法轮功。</p>
 <p>凡亲历过1999年中国历史的人都知道，这一年，中共独裁者<a href="http://cn.epochtimes.com/gb/tag/%E6%B1%9F%E6%B3%BD%E6%B0%91.html">江泽民</a>做的最大一件事，就是动用全部国家机器，以天塌地陷之势，迫害法轮功。</p>
 <p>尤其是，江泽民下令活摘法轮功学员器官，是继上世纪希特勒屠杀犹太人之后最邪恶的暴行，被称为“这个星球上前所未有的罪恶”。</p>
 <p>当年被江泽民及其追随者认为是天大的事，到了2021年，中共编撰百年大事记时，竟然只字不提。为什么？</p>
@@ -141,8 +141,7 @@
 <p>这里，我衷心希望中国大陆仍在参与迫害法轮功的人，能够静下心来，认真看一看这篇文章讲述的真相，别再跟着江泽民干坏事，给自己，给家人，给子孙，留一条后路。</p>
 <p>大纪元首发</p>
 <p>责任编辑：高义</p>
-					<!-- article content end -->
-					<div style="padding: 30px 0; text-align: center;"><a href="https://donate.epochtimes.com?utm_medium=epochtimes&amp;utm_source=referral&amp;utm_campaign=donate_image_djyarticlebottom_d">
+					
  </p>
 <p><div align=center><h2><a href="https://hm597.github.io?p=60a290159e989495934&u=santui" rel="nofollow">声明退出中共党（团、队）（点击進入）</a></h2>
 </p>
