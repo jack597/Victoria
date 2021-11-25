@@ -175,7 +175,7 @@
 <div align="center"><a href="https://gitlab.com/ofn1/Victoria/-/blob/master/README.md"><img src="https://gitlab.com/ofn1/huihui/-/raw/master/huizhen116_qr.jpg" title="滙真網"></img></a>
 <div align=center><strong><h3><strong>请收藏本站网址：</h3></strong></div>
 <div align=center><h4>https://github.com/ofn1/Victoria/blob/master/readme25.md</h4></div>
-<div align=center><h4>请收藏本站网址：https://gitlab.com/ofn1/Victoria/-/blob/master/readme25.md</h4></div>	 
+<div align=center><h4>https://gitlab.com/ofn1/Victoria/-/blob/master/readme25.md</h4></div>	 
 <div align=center><strong><h3><strong>本站短网址：</h3></strong></div>
 <div align=center><h3>https://is.gd/zhencj </h3></div>
 <div align=center><h3>https://git.io/zhencj </h3></div>
