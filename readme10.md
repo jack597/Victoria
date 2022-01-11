@@ -84,7 +84,8 @@
 </details>
 
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=6113e25ca7d2d6a4d32"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
-
+ <h2><p><div><strong>弥天的谎言 永远遮不住真相的揭露</strong></p></h2>
+<div align="center"><div align="center">
 <h2><p><div><strong>
 2022年腊八节随想</strong></p></h2>
 <p><div style=<p align="left">
