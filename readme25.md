@@ -84,8 +84,10 @@
 </details>
 
 <div align="center"><a href="https://s3.ap-southeast-1.amazonaws.com/zaevteyc/index.html?p=60a290159e989495934"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
-<h2><p><div><strong>
-
+ 
+ <h2><p><div><strong>弥天的谎言 永远遮不住真相的揭露</strong></p></h2>
+<div align="center"><div align="center">
+ <h2><p><div><strong>
 2022年腊八节随想</strong></p></h2>
 <p><div style=<p align="left">
  <p>作者：德惠</p>
