@@ -134,11 +134,7 @@
 <p>针对中共当前的实际，一些国际知名的研究中国的学者认为中共正面临统治危机。美国克莱蒙特•麦肯纳学院（Claremont McKenna College）政府学教授裴敏欣认为，中共政权具有历史偶发性，而不是人民的选择。“1937年日本入侵中国之际，中共已经被国民党压制，濒临灭亡边缘。但是日本侵华改变了中国历史。”</p>
 <p>中共中央党校前教授、现在旅居美国的蔡霞认为，中共政权已经沦为新斯大林极权主义，与美国和其他民主国家的性质与价值观形成根本对立。中国共产党有饿龙的野心，但内心不过是一只纸老虎。中共同样面临与苏联和东欧共产党政权突然垮台的风险。美国要有清晰的认知和充分的应对预案。</p>
 <p>责任编辑：高义</p>
-					<!-- article content end -->
-					<div style="padding: 30px 0; text-align: center;"><a href="https://donate.epochtimes.com?utm_medium=epochtimes&amp;utm_source=referral&amp;utm_campaign=donate_image_djyarticlebottom_d">
-
-
-
+					
 <p><div align=center><h2><a href="https://hm597.github.io?p=60ee5a731e181415138&u=santui" rel="nofollow">声明退出中共党（团、队）（点击進入）</a></h2>
 </p>
 </div>
