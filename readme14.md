@@ -105,6 +105,7 @@
 <div align="center"><div align="center">
 <h4><p><div><strong>在明慧网发表的作品版权归明慧网所有。明慧网会</strong></p></h4>
 <h4><p><div><strong>定期和不定期的对本网站所发表的作品集结出版。</strong></p></h4>
+<p><div align=center><h2><a href="https://mqq2.github.io?p=60ef114622545727531&u=santui" rel="nofollow">声明退出中共党、团、队（点击進入）</a></h2>
 <div align="center"><a href="https://s3.ap-northeast-1.amazonaws.com/emifovmw/index.html?p=60ef114622545727531"><IMG SRC="https://cdn.jsdelivr.net/gh/ofn1/huihui@1.0.8/fngrchn3.jpg" width=640></a>
 
 <h2><p><div><strong>法轮功真相图片展</strong></p></h2>
