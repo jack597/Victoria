@@ -87,7 +87,7 @@
  <h2><p><div><strong>弥天的谎言 永远遮不住真相的揭露</strong></p></h2>
 <div align="center"><div align="center">
 <h2><p><div><strong>
-沉默者亦是共犯</strong></p></h2>
+新州：大疫回归大陆 中共抗疫大败</strong></p></h2>
 <p><div style=<p align="left">
 <p>
   【大纪元2022年03月25日讯】连日来，
